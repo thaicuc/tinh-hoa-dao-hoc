@@ -1,4 +1,4 @@
-# Giới Thiệu
+# Lời Mở Đầu
 
 Nói về Đạo học Trung Hoa là nói đến cái học của Tam Huyền: Dịch, Lão, và Trang.
 Sự liên lạc giữa 3 cái học ấy thật là chặt chẽ, mà Dịch là đầu não: "Dịch quán
