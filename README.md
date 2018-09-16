@@ -1,6 +1,6 @@
 # Tinh Hoa Đạo Học
 
-[Lời Mở Đầu](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/00-gioi-thieu.md)
+[0. Lời Mở Đầu](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/00-gioi-thieu.md)
 
 [1. Hư Vô](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/01-hu-vo.md)
 
