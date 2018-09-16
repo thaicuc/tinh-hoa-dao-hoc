@@ -4,7 +4,7 @@ Một mở một đóng, gọi là Biến;
 Qua lại không cùng, gọi là Đạo.  
 "Nhất hạp nhất tịch, vị chi Biến;  
 Vãng lai bất cùng, vị chi Đạo."  
-**\_\_Dịch**
+***\_\_Dịch***
 
 Im lặng, không động;  
 Đến lúc cảm, thì suốt được mọi duyên cớ trong thiên hạ.  
