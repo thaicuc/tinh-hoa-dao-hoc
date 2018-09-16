@@ -21,4 +21,4 @@ Duy đạt giả tri thông vi nhất.
 
 \_\_Trang Tử
 
-[Quay Lại Trang Đầu Tiên &rarr;]
+[Quay Lại Trang Đầu Tiên &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc)
