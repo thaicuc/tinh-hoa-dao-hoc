@@ -1,4 +1,4 @@
-# Hoài Nghi
+# 11- Hoài Nghi
 
 Phương pháp đầu tiên để đả phá óc nhị nguyên và thành kiến là phải có óc Hoài
 nghi, thứ Hoài nghi phá hoại (doute destructeur), và cũng là thứ hoài nghi giải
@@ -90,3 +90,5 @@ thiện Đạo như Lão Tử đã nói: "Thiện hành vô triệt ích" 善行
 Tóm lại, con người cũ của ta có chết đi, thì con người mới phải chăng mới có thể
 được sinh ra, để đáp ứng kịp với cuộc sống luôn luôn đổi mới trong từng ngày,
 từng giờ, từng phút, từng giây... và thậm chí là trong từng Sát-na kia nữa.
+
+[12 - Hiện Tại &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/12-hien-tai.md)

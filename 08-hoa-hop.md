@@ -1,4 +1,4 @@
-# Hòa Hợp
+# 08 - Hòa Hợp
 
 Hư không là lẽ sống của vạn sự trên đời. Hư không là Đạo, là cội nguồn của cái
 sống. Sống là quân bình của hai nguyên lý Âm - Dương. Nhưng phải có mất quân
@@ -39,3 +39,5 @@ Và như thế, muốn trừ bớt được phần nào sự cuồng tín, phả
 thứ văn hóa nhất nguyên lưỡng cực động của Đông phương Đạo học và huyền học Tây
 phương là có thể trở thành một phương tiện hữu ích, để có thể đem lại cho loài
 người Tình thương và Hòa bình thực sự mà thôi.
+
+[09 - Tâm Hư &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/09-tam-hu.md)

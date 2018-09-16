@@ -1,4 +1,4 @@
-# Hư Vô
+# 01 - Hư Vô
 
 Nói đến Hư Vô là nói đến phần tinh hoa căn bản của Đạo học Đông phương, nhất là
 cái học Tam Huyền của Trung Hoa. Nếu không hiểu hoặc hiểu sai hai chữ Hư vô thì
@@ -65,3 +65,5 @@ tử dĩ hư thụ nhân." 山上有澤咸君子以虚受人. Trên núi mà có
 "lòng trống không". Chỉ người nào thực hiện được tấm lòng "hư không" ấy; không
 chấp chứa thành kiến nhị nguyên, không phân chia thiện ác, thị phi, vinh nhục...
 thì mới có thể dung nạp được vạn vật.
+
+[02 - Đạo Trời &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/02-dao-troi.md)

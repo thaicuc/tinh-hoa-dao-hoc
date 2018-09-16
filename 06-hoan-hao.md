@@ -1,4 +1,4 @@
-# Hoàn Hảo
+# 06 - Hoàn Hảo
 
 Lão tử nói: "Bảo thủ Đạo, bất dục doanh". Người ôm ấp Đạo, không bao giờ mong
 muốn được đầy đủ! Là tại sao? Là vì "Oa tắc doanh." 漥則盈. Cái gì còn thiếu sẽ
@@ -59,3 +59,5 @@ phóng được những tiềm lực sâu thẳm trong lòng người đọc. Kh
 Thái dương giúp cho trăm hoa đua nở.
 
 Nhưng! "Cây nào trổ hoa nấy!"
+
+[07 - Vô Tận &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/07-vo-tan.md)

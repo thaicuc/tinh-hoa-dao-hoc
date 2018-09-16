@@ -1,4 +1,4 @@
-# Nhu Thuật
+# 05 - Nhu Thuật
 
 Trong bất cứ ngành hoạt động nào, người Đông phương nhất nguyên luận mà biết
 dụng cái Hư vô, đều công nhận cái hiệu quả vô cùng kì diệu của nó.
@@ -40,3 +40,5 @@ không lời ý vị thâm trầm hơn những bản nhạc có lời bị hạn
 Người ta nói: "Người nào chưa biết sự hạn chế của ngôn từ, người đó chưa bao giờ
 viết văn". Nhưng tôi muốn nói thêm: "Người nào chưa biết phải giữ im lặng những
 chỗ cần im lặng, người đó chưa biết dùng lời giỏi".
+
+[06 - Hoàn Hảo &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/06-hoan-hao.md)

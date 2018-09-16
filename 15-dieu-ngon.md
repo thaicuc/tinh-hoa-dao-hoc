@@ -1,4 +1,4 @@
-# Diệu Ngôn
+# 15 - Diệu Ngôn
 
 Một mở một đóng, gọi là Biến;  
 Qua lại không cùng, gọi là Đạo.  
@@ -150,3 +150,5 @@ Vô khả ký ức.
 Hư minh tự nhiên,  
 Bất lao tâm lực."  
 \_\_Tăng Xán
+
+[16 - Trở Về &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/16-tro-ve.md)

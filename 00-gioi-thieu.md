@@ -1,4 +1,4 @@
-# Giới Thiệu
+# 00 - Giới Thiệu
 
 Nói về Đạo học Trung Hoa là nói đến cái học của Tam Huyền: Dịch, Lão, và Trang.
 Sự liên lạc giữa 3 cái học ấy thật là chặt chẽ, mà Dịch là đầu não: "Dịch quán
@@ -80,3 +80,5 @@ Quyển sách này đề cập đến "con người mới" ấy. Và bạn đọ
 khi mới bước vào ngưỡng cửa Đạo học Đông phương, nên đọc thêm những quyển "Nhập
 môn Triết học Đông phương", "Trang Tử tinh hoa", "Lão Tử tinh hoa", "Phật học
 tinh hoa", vì đây là phần tinh hoa của những bộ sách kia.
+
+[01 - Hư Vô &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/01-hu-vo.md)
