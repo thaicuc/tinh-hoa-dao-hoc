@@ -92,11 +92,11 @@ avec l’actuel, sans le condamner ni le justifier. Tout problème vu dans cette
 clarté est résola."  
 \_\_Krishnamurti
 
-[Đạo gia](https://thaicuc.github.io{{ page.url }} "ping") là người coi thường
-mọi giá trị đã được người đời chấp nhận, họ cũng đâu có sợ vượt qua luật lệ xã
-hội. Nhân đó họ mới là Tự do. Họ cũng lại hoàn toàn tự do đối với bản thân, vì
-họ là người đã vượt khỏi thị dục cùng ý niệm của chính mình ... Cặp mắt của
-Chân nhân mở rộng, không bao giờ tìm cách dối mình.  
+Đạo gia là những người coi thường mọi giá trị đã được người đời chấp nhận, họ 
+cũng đâu có sợ vượt qua luật lệ xã hội. Nhân đó họ mới là Tự do. Họ cũng lại 
+hoàn toàn tự do đối với bản thân, vì họ là người đã vượt khỏi thị dục cùng ý 
+niệm của chính mình ... Cặp mắt của Chân nhân mở rộng, không bao giờ tìm cách 
+dối mình.  
 "Le Sage taoiste méprise ouvertement toutes les valeurs admises par les hommes
 et ne craint pas de transgresser les lois. Il est LIBRE. Il est libre aussi par
 rapport à lui-même, puisqu’il s’affranchit de ses désirs et de ses idées ... Le
