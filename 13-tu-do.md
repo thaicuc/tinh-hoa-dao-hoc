@@ -18,21 +18,20 @@ cả. Họ tha hồ hoạt động, như Liệt Tử cưỡi gió mà đi, khôn
 định, vì không có hướng nào là hướng chánh cả.
 
 Trong bài "Cỡi gió", Liệt Tử nói lên phương pháp thực hiện Tâm hư để đi vào cõi
-[Tự do](https://thaicuc.github.io{{ page.url }} "ping") tuyệt đối như thế này:
-"Ròng rã 3 năm, ta vào cửa Thầy, lòng không dám nghĩ đến chuyện thị phi, miệng
-không dám nói đến điều lợi hại, được Thầy ta ban cho một cái nhìn. 5 năm sau,
-lòng không nghĩ đến thị phi, miệng không nói đến lợi hại, Thầy ban cho ta một nụ
-cười. 7 năm sau, lòng thản nhiên không nghĩ đến chuyện thị phi, miệng vô tư
-không nói đến điều lợi hại, Thầy ta cho phép ngồi cùng một chiếu. 9 năm sau, ta
-để cho tâm trí ta tha hồ muốn nghĩ gì thì nghĩ, miệng ta muốn nói gì thì nói. Ta
-không còn phân biệt cái gì là của người cái gì là của ta nữa; Thậm chí không còn
-biết ai là thầy, ai là bạn; Không còn phân biệt cái gì là trong, cái gì là
-ngoài. Bấy giờ, ngũ quan của ta được thống nhất, mắt như tai, tai như mũi, mũi
-như miệng, cả thảy đồng nhau. Tâm trí ta ngưng tụ làm một khối, còn hình thể ta
-thì nhẹ nhàng, thịt xương như sương khói. Ta không còn biết lưng ta tựa nơi đâu,
-chân ta đứng nơi nào. Ta tha hồ bay bổng như cỡi gió mà đi khắp chốn, khi Đông
-khi Tây, không phương hướng nhất định, không khác nào chiếc lá bay. Ta không
-biết có phải là ta cỡi gió, hay gió cỡi ta nữa."
+Tự do tuyệt đối như thế này: "Ròng rã 3 năm, ta vào cửa Thầy, lòng không dám 
+nghĩ đến chuyện thị phi, miệng không dám nói đến điều lợi hại, được Thầy ta ban 
+cho một cái nhìn. 5 năm sau, lòng không nghĩ đến thị phi, miệng không nói đến 
+lợi hại, Thầy ban cho ta một nụ cười. 7 năm sau, lòng thản nhiên không nghĩ đến 
+chuyện thị phi, miệng vô tư không nói đến điều lợi hại, Thầy ta cho phép ngồi 
+cùng một chiếu. 9 năm sau, ta để cho tâm trí ta tha hồ muốn nghĩ gì thì nghĩ, 
+miệng ta muốn nói gì thì nói. Ta không còn phân biệt cái gì là của người cái gì 
+là của ta nữa; Thậm chí không còn biết ai là thầy, ai là bạn; Không còn phân 
+biệt cái gì là trong, cái gì là ngoài. Bấy giờ, ngũ quan của ta được thống nhất, 
+mắt như tai, tai như mũi, mũi như miệng, cả thảy đồng nhau. Tâm trí ta ngưng tụ 
+làm một khối, còn hình thể ta thì nhẹ nhàng, thịt xương như sương khói. Ta không 
+còn biết lưng ta tựa nơi đâu, chân ta đứng nơi nào. Ta tha hồ bay bổng như cỡi 
+gió mà đi khắp chốn, khi Đông khi Tây, không phương hướng nhất định, không khác 
+nào chiếc lá bay. Ta không biết có phải là ta cỡi gió, hay gió cỡi ta nữa."
 
 Chỗ mà Liệt Tử bảo là "không phương hướng nhất định", cũng chính là chỗ mà Trang
 Tử bảo là "vô hà hữu chi hương", nhà Phật gọi là "ưng vô sở trụ". Nghệ thuật
