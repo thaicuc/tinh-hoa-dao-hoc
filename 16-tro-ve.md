@@ -20,5 +20,3 @@ Duy đạt giả tri thông vi nhất.
 唯達者知通爲一
 
 \_\_Trang Tử
-
-[Quay Lại Trang Đầu Tiên &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc)
