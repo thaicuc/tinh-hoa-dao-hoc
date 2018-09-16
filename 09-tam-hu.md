@@ -1,4 +1,4 @@
-# 09 - Tâm Hư
+# 9. Tâm Hư
 
 Benri Bergson nói: "Triết luận đâu có khó, nếu ta đừng để cho những tư tưởng đã
 đúc sẵn (thành kiến) đến chen ngăn giữa ta và sự vật." (Philosopher serait chose
@@ -34,4 +34,4 @@ phúc sẽ không bao giờ có hạnh phúc mà chỉ có ưu tư hay thống k
 Lão Tử, vì vậy, khuyên ta "bất dục đắc" (đừng mong được). Có vượt qua được cái
 lòng ưa ghét và muốn được, thì mới có thể thực hiện được cái Tâm hư như đã nói.
 
-[10 - Vô Trụ &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/10-vo-tru.md)
+[10. Vô Trụ &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/10-vo-tru.md)

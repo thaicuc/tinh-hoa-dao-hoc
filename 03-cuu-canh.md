@@ -1,4 +1,4 @@
-# 03 - Cứu Cánh
+# 3. Cứu Cánh
 
 Lão Tử nói: "Vạn vật phụ âm nhi bảo dương, xung khí dĩ vi hòa". Vạn vật trong
 Trời Đất, không vật nào là không cõng âm bồng dương. Nhờ cái khí của Hư vô mà
@@ -31,4 +31,4 @@ nguyệt quật, là Thiên địa linh căn, là Tiên thiên chân nhất chi 
 bất muội chi thân v.v... Nhà Phật thì gọi là Niết bàn diệu tâm, là Bản lai diện
 mục, v.v... Thiên chúa giáo gọi là Tình thương (Amour) hay Thượng Đế.
 
-[04 - Thái Cực &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/04-thai-cuc.md)
+[4. Thái Cực &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/04-thai-cuc.md)

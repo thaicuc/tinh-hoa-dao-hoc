@@ -1,4 +1,4 @@
-# 13 - Tự Do
+# 13. Tự Do
 
 Jean Grenier từng nói: "Kẻ nào hết sức tin tưởng nơi một giá trị tuyệt đối nào,
 thì kẻ đó đã là kẻ thủ của Tự do rồi. Kẻ nào yêu Tự do trên tất cả, là người
@@ -44,4 +44,4 @@ khắc Vô chung Vô thủy." (Le thème constant de tous les arts Zen, c’est 
 sans but, l’expression de l’état d’âme de l’artiste, sa sensation de n’aller
 nulle part en un instant intemporel...).
 
-[14 - Cuộc Sống &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/14-cuoc-song.md)
+[14. Cuộc Sống &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/14-cuoc-song.md)

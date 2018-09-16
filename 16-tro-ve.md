@@ -1,4 +1,4 @@
-# 16 - Trở Về
+# 16. Trở Về
 
 Có phân đôi (theo nhị nguyên luận) mới có “thành” (cái gọi là Thị hay Phi, Thiện
 hay Ác).  

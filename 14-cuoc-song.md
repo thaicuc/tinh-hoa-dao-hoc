@@ -1,4 +1,4 @@
-# 14 - Cuộc Sống
+# 14. Cuộc Sống
 
 Krishnamurti thường nói: "Chỉ có cái sống trong hiện tại, mới có thể gọi là thực
 mà thôi."
@@ -40,4 +40,4 @@ việc đáp ứng với cuộc sống ngay bây giờ. Cái sống là Vô tậ
 Đạo, không có cái gì gọi là đúng tuyệt đối cả. Vì vậy nên Phật tổ sau 49 năm
 thuyết pháp, lại nói: "Bấy lâu nay, ta chưa từng nói một lời nào".
 
-[15 - Diệu Ngôn &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/15-dieu-ngon.md)
+[15. Diệu Ngôn &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/15-dieu-ngon.md)

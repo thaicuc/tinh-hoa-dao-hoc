@@ -1,4 +1,4 @@
-# 10 - Vô Trụ
+# 10. Vô Trụ
 
 Muốn cho Tâm mình phản ánh được một cách chính xác hình ảnh chân thực của sự
 vật, sự việc, thì phải biết sử dụng cái Tâm như tấm gương mà Trang Tử đã nói:
@@ -39,4 +39,4 @@ thì phải đến tối, hết ngày thì phải đến đêm, hết Xuân Hạ
 Cho nên, Sống là chấp nhận, chấp nhận một cách thông minh những gì mà lẽ nó phải
 vậy; Không vậy không đặng: "đất đắc bất nhiên".
 
-[11 - Hoài Nghi &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/11-hoai-nghi.md)
+[11. Hoài Nghi &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/11-hoai-nghi.md)

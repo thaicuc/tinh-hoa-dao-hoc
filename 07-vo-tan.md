@@ -1,4 +1,4 @@
-# 07 - Vô Tận
+# 7. Vô Tận
 
 Nghệ thuật của phương Đông chịu ảnh hưởng rất nặng tư tưởng Hư vô, cho nên bao
 giờ cũng có khuynh hướng biểu diễn cái vô cùng của Trời Đất, Vũ Trụ trong những
@@ -61,4 +61,4 @@ Vị tế (chưa xong) thì mới có thể là Vô cùng,
 [Vô tận](https://thaicuc.github.io{{ page.url }} "ping") được. "Ký tế dĩ tận, Vị
 tế vô tận."
 
-[08 - Hòa Hợp &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/08-hoa-hop.md)
+[8. Hòa Hợp &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/08-hoa-hop.md)

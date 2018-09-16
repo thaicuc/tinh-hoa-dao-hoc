@@ -1,4 +1,4 @@
-# 04 - Thái Cực
+# 4. Thái Cực
 
 Toàn bộ Đạo Đức Kinh chỉ lấy có hai chữ Hư Vô làm Thể, Vô Vi làm Dụng. Đoạn văn
 sau có thể gồm nắm tinh hoa Đạo học của Lão Tử: "Trí Hư cực, thủ Tịnh đốc, vạn
@@ -125,4 +125,4 @@ cậy ở sự được mãi bình trị. Bởi vậy, người hiểu Dịch l�
 nguy; lúc còn không quên lúc sắp mất; lúc trị không quên lúc loạn. Nhờ vậy mà
 thân mới được yên, và nước mới có thể giữ được.
 
-[05 - Nhu Thuật &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/05-nhu-thuat.md)
+[5. Nhu Thuật &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/05-nhu-thuat.md)
