@@ -7,8 +7,7 @@ Ngay trong phép tranh đấu của các môn kiếm thuật hay quyền thuật
 dụng phép Hư vô một cách hết sức hiệu quả bằng chiến thuật "Bất tranh nhi thiện
 thắng" của Lão Tử.
 
-Sở dĩ thuật tự vệ của Nhật Bản thường được gọi là
-[Nhu Thuật](https://thaicuc.github.io{{ page.url }} "ping") (hay Nhu Đạo), được
+Sở dĩ thuật tự vệ của Nhật Bản thường được gọi là Nhu Thuật (hay Nhu Đạo), được
 xem như là một môn võ công siêu đẳng cũng chính là nhờ biết tạo cho mình một cái
 thế Hư vô để dụ cho đối phương kiệt lực vì dùng quá nhiều đến ngạnh công. Trong
 khi đó mình cứ giữ quân bình bất động (Vô vi) để cầm vững khí lực hầu nắm phần
