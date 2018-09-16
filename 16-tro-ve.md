@@ -4,7 +4,7 @@ Kỳ Phân dã, Thành dã.
 Kỳ Thành dã, Hủy dã.  
 Phàm vật vô thành dữ hủy,  
 Phục thông vi Nhất.  
-Duy đạt giả tri thông vi nhất.
+Duy đạt giả tri thông vi nhất.  
 ***\_\_Trang Tử***
 
 Có phân đôi (theo nhị nguyên luận) mới có “thành” (cái gọi là Thị hay Phi, Thiện
