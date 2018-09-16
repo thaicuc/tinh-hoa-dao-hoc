@@ -19,4 +19,4 @@ Duy đạt giả tri thông vi nhất.
 復通爲一  
 唯達者知通爲一
 
-\_\_Trang Tử
+***\_\_Trang Tử***
