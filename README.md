@@ -1,9 +1,9 @@
 # Tinh Hoa Đạo Học
 
-> Nội dung đăng tải tại đây đã được lược giản. Bạn có thể tìm đọc bản đầy đủ
-> 'Tinh hoa đạo học phương Đông' của cụ Nguyễn Duy Cần.
+> Nội dung đăng tải tại đây đã được lược giản.  
+> Bạn có thể tìm đọc bản đầy đủ 'Tinh hoa đạo học phương Đông' của cụ Nguyễn Duy Cần.
 
-[Lời Mở Đầu](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/00-loi-mo-dau.md)  
+[Lời Mở Đầu &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/00-loi-mo-dau.md)  
 [1. Hư Vô](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/01-hu-vo.md)  
 [2. Đạo Trời](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/02-dao-troi.md)  
 [3. Cứu Cánh](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/03-cuu-canh.md)  
