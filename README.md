@@ -25,14 +25,14 @@
 
 [10. Vô Trụ](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/10-vo-tru.md)
 
-[11. Cứu Cánh](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/11-hoai-nghi.md)
+[11. Hoài Nghi](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/11-hoai-nghi.md)
 
-[12. Cứu Cánh](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/12-hien-tai.md)
+[12. Hiện Tại](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/12-hien-tai.md)
 
-[13. Cứu Cánh](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/13-tu-do.md)
+[13. Tự Do](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/13-tu-do.md)
 
-[14. Cứu Cánh](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/14-cuoc-song.md)
+[14. Cuộc Sống](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/14-cuoc-song.md)
 
-[15. Cứu Cánh](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/15-dieu-ngon.md)
+[15. Diệu Ngôn](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/15-dieu-ngon.md)
 
-[16. Cứu Cánh](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/16-tro-ve.md)
+[16. Trở Về](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/16-tro-ve.md)
