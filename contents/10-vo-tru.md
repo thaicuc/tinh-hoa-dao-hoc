@@ -39,4 +39,4 @@ thì phải đến tối, hết ngày thì phải đến đêm, hết Xuân Hạ
 Cho nên, Sống là chấp nhận, chấp nhận một cách thông minh những gì mà lẽ nó phải
 vậy; Không vậy không đặng: "đất đắc bất nhiên".
 
-[11. Hoài Nghi &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/11-hoai-nghi.md)
+[11. Hoài Nghi &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/contents/11-hoai-nghi.md)

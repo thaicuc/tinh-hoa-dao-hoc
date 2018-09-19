@@ -23,11 +23,11 @@ moderne ne concoit d’autre ideal que la performance; il veut sauter pardessus 
 propre tête. C’est pourquoi, it rejette la SAGESSE, qui est MODÉRATION. Bon.
 Mais il n’échappe pas aux lois de l’ÉQUILIBRE, au retour du pendule.)
 
-Vì vậy, thực hiện được cái Tâm hư là mục đích, cứu cánh của người tu Đạo, cả 
+Vì vậy, thực hiện được cái Tâm hư là mục đích, cứu cánh của người tu Đạo, cả
 Đông lẫn Tây. Cái Tâm hư ấy được các nhà gọi với những cái tên khác nhau. Nhà
 Lão khi thì gọi là Đạo, là Cốc Thần, là Huyền Tẫn. Nhà Đạo thì gọi là Thiên căn
 nguyệt quật, là Thiên địa linh căn, là Tiên thiên chân nhất chi khí, là Linh hư
 bất muội chi thân v.v... Nhà Phật thì gọi là Niết bàn diệu tâm, là Bản lai diện
 mục, v.v... Thiên chúa giáo gọi là Tình thương (Amour) hay Thượng Đế.
 
-[4. Thái Cực &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/04-thai-cuc.md)
+[4. Thái Cực &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/contents/04-thai-cuc.md)

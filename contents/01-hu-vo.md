@@ -66,4 +66,4 @@ tử dĩ hư thụ nhân." 山上有澤咸君子以虚受人. Trên núi mà có
 chấp chứa thành kiến nhị nguyên, không phân chia thiện ác, thị phi, vinh nhục...
 thì mới có thể dung nạp được vạn vật.
 
-[2. Đạo Trời &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/02-dao-troi.md)
+[2. Đạo Trời &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/contents/02-dao-troi.md)

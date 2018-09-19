@@ -57,7 +57,7 @@ là quẻ Vị tế (chưa xong). Là vì Đạo Dịch, tức Đạo biến hó
 vô tận, không thể bị chấm dứt.
 
 Cái gì Ký tế (đã xong) thì sự đã đến chỗ tận cùng mất rồi; Chỉ có những cái gì
-Vị tế (chưa xong) thì mới có thể là Vô cùng, Vô tận được. "Ký tế dĩ tận, Vị tế 
+Vị tế (chưa xong) thì mới có thể là Vô cùng, Vô tận được. "Ký tế dĩ tận, Vị tế
 vô tận."
 
-[8. Hòa Hợp &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/08-hoa-hop.md)
+[8. Hòa Hợp &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/contents/08-hoa-hop.md)

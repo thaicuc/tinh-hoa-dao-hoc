@@ -40,4 +40,4 @@ thứ văn hóa nhất nguyên lưỡng cực động của Đông phương Đ�
 phương là có thể trở thành một phương tiện hữu ích, để có thể đem lại cho loài
 người Tình thương và Hòa bình thực sự mà thôi.
 
-[9. Tâm Hư &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/09-tam-hu.md)
+[9. Tâm Hư &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/contents/09-tam-hu.md)

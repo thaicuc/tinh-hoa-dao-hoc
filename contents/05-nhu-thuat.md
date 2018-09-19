@@ -40,4 +40,4 @@ Người ta nói: "Người nào chưa biết sự hạn chế của ngôn từ,
 viết văn". Nhưng tôi muốn nói thêm: "Người nào chưa biết phải giữ im lặng những
 chỗ cần im lặng, người đó chưa biết dùng lời giỏi".
 
-[6. Hoàn Hảo &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/06-hoan-hao.md)
+[6. Hoàn Hảo &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/contents/06-hoan-hao.md)

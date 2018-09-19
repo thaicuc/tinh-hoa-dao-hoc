@@ -81,4 +81,4 @@ khi mới bước vào ngưỡng cửa Đạo học Đông phương, nên đọc
 môn Triết học Đông phương", "Trang Tử tinh hoa", "Lão Tử tinh hoa", "Phật học
 tinh hoa", vì đây là phần tinh hoa của những bộ sách kia.
 
-[1. Hư Vô &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/01-hu-vo.md)
+[1. Hư Vô &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/contents/01-hu-vo.md)

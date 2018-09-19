@@ -44,4 +44,4 @@ hai lẽ Ghét và Thương, hoặc cùng không tồn tại, hoặc một khi �
 luôn luôn đi đôi với nhau không thể tách rời; Không thể có cái này tồn tại mà
 không có cái kia.
 
-[3. Cứu Cánh &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/03-cuu-canh.md)
+[3. Cứu Cánh &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/contents/03-cuu-canh.md)

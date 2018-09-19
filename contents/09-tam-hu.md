@@ -9,11 +9,11 @@ Chánh kiến, theo Đạo học, là nhận thức được sự vật y như n
 phải là nhận thức nó theo lòng ưa ghét của ta và mong nó phải xảy ra như thế
 nào.
 
-Nói thì dễ; Nhưng để thực hiện được cái Tâm hư đem đối ứng với mọi sự vật, sự 
-việc là điều không hề dễ dàng. Vì tâm trí của mỗi người trong chúng ta là một 
-khối dầy đặc những thành kiến cá nhân và chủng tộc, những thành kiến xã hội và 
-những tư duy truyền thống của cả ngàn đời mà ta đã đặt cho nó những cái tên rất 
-tốt đẹp là văn hóa, văn minh. Cần phải có một sự tu hành dày công mới có thể 
+Nói thì dễ; Nhưng để thực hiện được cái Tâm hư đem đối ứng với mọi sự vật, sự
+việc là điều không hề dễ dàng. Vì tâm trí của mỗi người trong chúng ta là một
+khối dầy đặc những thành kiến cá nhân và chủng tộc, những thành kiến xã hội và
+những tư duy truyền thống của cả ngàn đời mà ta đã đặt cho nó những cái tên rất
+tốt đẹp là văn hóa, văn minh. Cần phải có một sự tu hành dày công mới có thể
 phá được cái ác tập nhị nguyên để đi đến Giải thoát.
 
 Như trước đây đã nói, thực hiện Đạo không khó, miễn đừng lựa chọn, đừng còn có
@@ -33,4 +33,4 @@ phúc sẽ không bao giờ có hạnh phúc mà chỉ có ưu tư hay thống k
 Lão Tử, vì vậy, khuyên ta "bất dục đắc" (đừng mong được). Có vượt qua được cái
 lòng ưa ghét và muốn được, thì mới có thể thực hiện được cái Tâm hư như đã nói.
 
-[10. Vô Trụ &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/10-vo-tru.md)
+[10. Vô Trụ &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/contents/10-vo-tru.md)

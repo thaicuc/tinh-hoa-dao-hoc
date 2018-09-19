@@ -134,17 +134,17 @@ phê bình lên án cũng không tìm cách biện minh. Tất cả mọi vấn 
 sáng ấy đều được giải quyết.
 
 ***
-  
+
 Le Sage taoiste méprise ouvertement toutes les valeurs admises par les hommes
 et ne craint pas de transgresser les lois. Il est LIBRE. Il est libre aussi par
 rapport à lui-même, puisqu’il s’affranchit de ses désirs et de ses idées ... Le
 Sage taoiste a les yeux ouverts et ne cherche pas à se mentir.  
 ***\_\_Jean Grenier***
 
-Đạo gia là những người coi thường mọi giá trị đã được người đời chấp nhận, họ 
-cũng đâu có sợ vượt qua luật lệ xã hội. Nhân đó họ mới là Tự do. Họ cũng lại 
-hoàn toàn tự do đối với bản thân, vì họ là người đã vượt khỏi thị dục cùng ý 
-niệm của chính mình ... Cặp mắt của Chân nhân mở rộng, không bao giờ tìm cách 
+Đạo gia là những người coi thường mọi giá trị đã được người đời chấp nhận, họ
+cũng đâu có sợ vượt qua luật lệ xã hội. Nhân đó họ mới là Tự do. Họ cũng lại
+hoàn toàn tự do đối với bản thân, vì họ là người đã vượt khỏi thị dục cùng ý
+niệm của chính mình ... Cặp mắt của Chân nhân mở rộng, không bao giờ tìm cách
 dối mình.
 
 ***
@@ -213,4 +213,4 @@ Thì lấy gì gọi là ký ức.
 Lòng được Hư không thì tự nhiên trong sáng,  
 Cần gì phải lao tâm nhọc sức.
 
-[16. Trở Về &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/16-tro-ve.md)
+[16. Trở Về &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/contents/16-tro-ve.md)

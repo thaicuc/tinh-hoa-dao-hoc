@@ -25,4 +25,4 @@ tức là lại rơi vào nhị nguyên, lại chuốc lấy đau khổ. Vậy n
 "Cẳng vịt thì ngắn, cố kéo dài nó đau. Giò hạc thì dài, cố làm cho ngắn nó khổ.
 Cho nên, Tánh ra sao để như vậy thì sao có đau khổ?"
 
-[13. Tự Do &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/13-tu-do.md)
+[13. Tự Do &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/contents/13-tu-do.md)

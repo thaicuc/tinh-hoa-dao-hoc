@@ -91,4 +91,4 @@ Tóm lại, con người cũ của ta có chết đi, thì con người mới ph
 được sinh ra, để đáp ứng kịp với cuộc sống luôn luôn đổi mới trong từng ngày,
 từng giờ, từng phút, từng giây... và thậm chí là trong từng Sát-na kia nữa.
 
-[12. Hiện Tại &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/12-hien-tai.md)
+[12. Hiện Tại &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/contents/12-hien-tai.md)
