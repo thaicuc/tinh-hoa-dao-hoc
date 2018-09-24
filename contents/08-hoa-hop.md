@@ -1,10 +1,10 @@
 # 8. Hòa Hợp
 
 Hư không là lẽ sống của vạn sự trên đời. Hư không là Đạo, là cội nguồn của cái
-sống. Sống là quân bình của hai nguyên lý Âm - Dương. Nhưng phải có mất quân
+sống. Sống là quân bình của hai nguyên lý Âm và Dương. Nhưng phải có mất quân
 bình mới có sự chuyển vận mà thôi. Có mất quân bình giữa vùng Nóng và vùng Lạnh
-mới có những luồng gió mát. Có mất quân bình giữa hai luồng điện Âm - Dương mới
-có dòng điện lực, mới có sự chuyển vận vô cùng, vô tận của tự nhiên.
+mới có những luồng gió mát. Có mất quân bình giữa hai luồng điện Âm và Dương 
+mới có dòng điện lực, mới có sự chuyển vận vô cùng, vô tận của tự nhiên.
 
 Tồn tại những sự mất quân bình ấy trên thế gian này, mới thấy in tuồng như không
 có quân bình. Nhưng kỳ thực, chỉ là những sự mất quân bình tạm thời, đang tìm
