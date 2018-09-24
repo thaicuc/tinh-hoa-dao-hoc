@@ -26,7 +26,7 @@ những nét bút vừa mạnh bạo, quyết đoán; nhưng lại vừa nhẹ n
 Trong những bức tranh thủy mặc, người hoạ sĩ chỉ dùng có một thứ mực màu đen hòa
 với nước lã, khi đậm khi nhạt trên nền giấy trắng; đơn giản vậy thôi. Là bởi vì
 chỉ có sự cực kỳ đơn giản mới có thể tượng trưng được cái Hư không, cái Vô cùng
-Vô tận của Vũ Trụ.
+của Vũ Trụ.
 
 Màu đen đậm nhạt trên tờ giấy trắng tượng trưng cho sự gắn bó của Âm Dương làm
 nổi bật lẫn nhau như Lão Tử vẫn nói: "Vạn vật phụ âm nhi bảo dương, xung khí dĩ
