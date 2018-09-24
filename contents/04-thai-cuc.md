@@ -8,9 +8,9 @@ Bất tri thường, vọng tác hung."
 致虚極守静篤萬物並作吾以觀復夫物芸芸各復歸其根歸根曰静是謂曰復命復命曰常知常曰明不知常妄作凶.
 Đến chỗ cùng cực Hư không, mới giữ được lòng hết sức Thanh tịnh. Vạn vật đều do
 nơi đó mà sinh ra, rồi ta lại thấy tất cả đều quay về. Ôi, vạn vật trùng trùng,
-vật nào rồi cũng quay về cội rễ của nó. Trở về cội rễ, nên gọi là Tịnh, nên gọi
-là Phục mạng. Trở về với Mạng, nên gọi là Thường. Biết rõ đạo Thường là sáng;
-không tỏ đạo Thường là liều làm hung gây họa.
+vật nào rồi cũng quay trở về cội rễ của nó. Trở về cội rễ, nên gọi là Tịnh, nên 
+gọi là Phục mạng. Trở về với Mạng, nên gọi là Thường. Biết rõ đạo Thường là 
+sáng; không tỏ đạo Thường là liều làm hung gây họa.
 
 Câu "Quy căn phục mạng" nói lên được một cách rõ ràng cái công dụng của Hư vô.
 Nơi quẻ Thái, trong Kinh dịch có viết: "Vô vãng bất phục" (không có một cái gì
