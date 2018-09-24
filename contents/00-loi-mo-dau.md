@@ -60,7 +60,7 @@ nghĩa là "đồng" mà có nghĩa là "hòa". Nói như Kinh Dịch, tuy sự 
 tương hóa mà cũng tự sinh, tự hóa. Và bởi thế mới có Thiền Ấn Độ, Thiền Trung
 Hoa, Thiền Nhật Bản, Thiền Việt Nam, Thiền Công Giáo (Zen Chrétien)...
 
-Giả sử có một tín đồ Công giáo đến thụ giáo một Thiền sư Đông phương, Thiền sư
+Giả sử có một tín đồ Công giáo đến thụ giáo một Thiền sư phương Đông, Thiền sư
 sẽ không bao giờ khuyến dụ anh bỏ Đạo của anh, mà chỉ hỏi quan niệm của anh về
 Jesus như thế nào, và phận sự của Thiền sư chỉ giúp anh quan niệm một cách chính
 xác hơn về Jesus mà thôi. Jesus, Thích Ca, Lão Tử chỉ là 1. Vấn đề chính của
