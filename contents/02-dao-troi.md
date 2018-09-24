@@ -26,7 +26,7 @@ mình. Nhà Thiền gọi đó là "pháp môn bất nhị", nhà Dịch gọi l
 gọi là Đạo (Hư vô). Người đắc Đạo vì vậy được gọi là người đắc Trung. Và người
 đắc Trung là người không còn chọn lựa, không ưa thiện ghét ác, ưa phải ghét
 quấy, ưa vinh ghét nhục, ưa sướng ghét khổ, ưa sáng ghét tối... Các mật pháp của
-đạo giải thoát là điểm này.
+đạo giải thoát là ở điểm này.
 
 Tăng Xán, tổ thứ 3 của nhà Thiền, trong Tín Tâm Minh, có ghi rất rõ ràng thế nào
 là Đạo giải thoát, cứu cánh của đời người theo Đạo: "Chí Đạo vô nan, duy hiềm
