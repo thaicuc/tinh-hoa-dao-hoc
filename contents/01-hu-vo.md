@@ -55,10 +55,10 @@ không bao giờ ngưng, mà không hề vơi." Ấy cũng chính là để hàm
 người mộ Đạo.
 
 Huyền học Tây phương, trong quyển La Voix du Silence (tiếng nói của Hư vô) có
-câu: "Hãy để lòng mình to rộng như biển cả thu hút cả sông rạch vào trong. Sự
-yên lặng trầm hùng của biển cả luôn luôn bất biến. Nó cảm thấy không lưng vơi."
-(Sois comme l’Ocean qui recoit tous les ruisseaux et toutes les rivières. Le
-puissant calme de l’Ocean reste immuable, il ne les sent pas)
+câu: "Hãy để lòng mình to rộng như biển cả thu hút tất cả sông rạch vào trong. 
+Sự yên lặng trầm hùng của biển cả luôn luôn bất biến. Nó cảm thấy không lưng 
+vơi." (Sois comme l’Ocean qui recoit tous les ruisseaux et toutes les rivières. 
+Le puissant calme de l’Ocean reste immuable, il ne les sent pas)
 
 Ở quẻ Hàm 咸 trong Kinh dịch, lời Tượng có câu: "Sơn thượng hữu trạch. Hàm, quân
 tử dĩ hư thụ nhân." 山上有澤咸君子以虚受人. Trên núi mà có chầm nước là nhờ có cái
