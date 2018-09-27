@@ -41,7 +41,7 @@ vũ trụ chỉ là một bãi chiến trường, trong đó trỗi lên một b
 D’Amour eternel). Nói "vũ trụ là bãi chiến trường" là ám chỉ sự đối lập của Âm
 Dương; Nói "bản tình ca bất tận" là nói về sự hài hòa của Dịch; Biểu tượng cho
 hai lẽ Ghét và Thương, hoặc cùng không tồn tại, hoặc một khi đã xuất hiện thì
-luôn luôn đi đôi với nhau không thể tách rời; Không thể có cái này tồn tại mà
-không có cái kia.
+luôn luôn đi đôi với nhau không thể tách rời; Không thể nào có cái này tồn tại 
+mà không có cái kia.
 
 [3. Cứu Cánh &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/contents/03-cuu-canh.md)
