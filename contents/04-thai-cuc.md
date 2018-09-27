@@ -1,10 +1,10 @@
 # 4. Thái Cực
 
-Toàn bộ Đạo Đức Kinh chỉ lấy có hai chữ Hư Vô làm Thể, Vô Vi làm Dụng. Đoạn văn
-sau có thể gồm nắm tinh hoa Đạo học của Lão Tử: "Trí Hư cực, thủ Tịnh đốc, vạn
-vật tịnh tác. Ngô dĩ quan Phục. Phù vận vân vân, các phục quy kỳ căn. Quy căn
-viết Tịnh, thị vị viết Phục mạng. Phục mạng viết Thường. Tri thường viết Minh.
-Bất tri thường, vọng tác hung."
+Toàn bộ Đạo Đức Kinh chỉ lấy có hai chữ Hư Vô làm Thể, và Vô Vi làm Dụng. Đoạn 
+văn sau có thể gồm nắm tinh hoa học thuyết của Lão Tử: "Trí Hư cực, thủ Tịnh 
+đốc, vạn vật tịnh tác. Ngô dĩ quan Phục. Phù vận vân vân, các phục quy kỳ căn. 
+Quy căn viết Tịnh, thị vị viết Phục mạng. Phục mạng viết Thường. Tri thường viết 
+Minh. Bất tri thường, vọng tác hung."
 致虚極守静篤萬物並作吾以觀復夫物芸芸各復歸其根歸根曰静是謂曰復命復命曰常知常曰明不知常妄作凶.
 Đến chỗ cùng cực Hư không, mới giữ được lòng hết sức Thanh tịnh. Vạn vật đều do
 nơi đó mà sinh ra, rồi ta lại thấy tất cả đều quay về. Ôi, vạn vật trùng trùng,
