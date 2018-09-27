@@ -73,22 +73,22 @@ bảng giá trị của mọi hệ thống đạo đức nhị nguyên.
 Như trước đây đã nói, Tâm hư tuy chấp chứa được tất cả, nhưng rồi cũng chẳng lưu
 giữ gì cả, dù là những khoảnh khắc vui sướng nhất đời người. Tâm hư, vì vậy,
 không còn dính dấp gì đến cái gọi là "quá khứ" nữa. Quá khứ là quá khứ, không có
-ích gì cho hiện tại ta đang sống ngay đây, thậm chí còn là trở ngại cho sự giải
-phóng toàn diện một con người.
+ích gì cho hiện tại ta đang sống ngay đây. Thậm chí nó còn là trở ngại cho sự 
+giải phóng toàn diện một con người.
 
 Một thiền sư, khi được hỏi về Đạo, đã dạy những lời này: "Nói ra không khó,
 nhưng anh cần phải bắt kịp lời nói của tôi ngay khi nó vừa thoát ra khỏi cửa
 miệng. Được như vậy, là đã gần với Đạo rồi. Bằng không, sau đó anh sẽ đâm ra suy
 luận viển vông, rồi lại đổ lỗi về cho tôi. Vậy thà nên im lặng, để tránh cho
-nhau những điều lầm lẫn".
+nhau những điều lầm lẫn."
 
 Lời nói vừa thốt ra khỏi cửa miệng, nếu bắt theo không kịp, nó lại trở thành quá
 khứ. Bởi vậy, mới có nói: "Học Phật, phải biết kinh Phật, rồi xé kinh Phật". Nếu
 còn lưu giữ lại những dấu chân của quá khứ nơi tâm mình, thì chưa phải là người
-thiện Đạo như Lão Tử đã nói: "Thiện hành vô triệt ích" 善行無轍迹.
+thiện Đạo như Lão Tử đã nói: "Thiện hành vô triệt ích." 善行無轍迹.
 
 Tóm lại, con người cũ của ta có chết đi, thì con người mới phải chăng mới có thể
-được sinh ra, để đáp ứng kịp với cuộc sống luôn luôn đổi mới trong từng ngày,
+được sinh ra để đáp ứng kịp với cuộc sống luôn luôn đổi mới trong từng ngày, 
 từng giờ, từng phút, từng giây... và thậm chí là trong từng Sát-na kia nữa.
 
 [12. Hiện Tại &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/contents/12-hien-tai.md)
