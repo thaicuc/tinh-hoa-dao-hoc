@@ -35,10 +35,10 @@ nhờ cái khí của Hư vô mà điều hòa với nhau.
 
 "Xung khí", hay cái khí của Hư vô (le souffle du Vide), ở hội họa là cái Thần
 của nét bút, là cái tâm "hư không", là nơi giao hòa của sự mạnh bạo, quyết đoán,
-và nhẹ nhàng, uyển chuyển của ngòi bút. Muốn nhận thấy cái Thần trong chữ viết
-hay bức họa, người ta nhìn ở nét bút của người họa sĩ. Nét nào đã phóng ra, không
-bao giờ đồ lại; Nét đồ lại là nét chết. Cũng như cái gì đã qua là qua hẳn. Đạo,
-không có quá khứ!
+và nhẹ nhàng, uyển chuyển. Muốn nhận thấy cái Thần trong chữ viết hay bức họa, 
+người ta nhìn ở nét bút của người họa sĩ. Nét nào đã phóng ra, không bao giờ đồ 
+lại; Nét đồ lại là nét chết. Cũng như cái gì đã qua là qua hẳn. Đạo, không có 
+quá khứ!
 
 Muốn nắm lấy cái Hư không tuyệt đối, người nghệ sĩ phải phá bỏ các hình thức
 tượng trưng Hữu danh, để tạo nên những hình thức mỹ thuật Vô danh. Vì vậy mới có
