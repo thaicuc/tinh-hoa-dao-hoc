@@ -13,9 +13,9 @@ là phải".
 
 Nhân tâm là vậy, những gì ta cho là phải, ai nghĩ nghịch lại hoặc nói nghịch
 lại, là người thù. Bởi vậy, có nhà sử học đã thống kê cho biết, chỉ trong vòng
-5000 năm trở về đây, đã xảy ra trên 15,000 cuộc chiến tranh trên toàn thế giới.
-Lịch sử đã dạy cho chúng ta những gì mà cứ tin tưởng tuyệt đối vào "bài học của
-lịch sử"?
+5000 năm trở lại đây, đã xảy ra trên 15,000 cuộc chiến tranh trên toàn thế 
+giới. Lịch sử đã dạy cho chúng ta những gì mà cứ tin tưởng tuyệt đối vào "bài 
+học của lịch sử"?
 
 Và như vậy, bước đầu tiên trên con đường tầm  Đạo, là cần phải đặt lại tất cả
 mọi giá trị, mọi vấn đề mà ta thụ lãnh một cách vô tâm, thụ động từ mọi phía đưa
