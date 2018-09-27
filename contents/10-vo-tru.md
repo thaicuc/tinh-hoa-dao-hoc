@@ -9,10 +9,10 @@ chọn; Nghĩa là không chọn riêng những gì mình ưa thích và loại 
 để những gì mình không ưa hay ghét bỏ. Phải có một thứ tình như mẫu tử, không
 bao giờ ghét những đứa con hư. Đó là lòng đại từ bi, năng hỉ xả của bậc Bồ tát.
 
-Nho gia Trình Minh Đạo đã từng nói: "Thiện ác giai thiên lý". Bất kỳ sự vật, sự
+Nho gia Trình Minh Đạo từng nói: "Thiện ác giai thiên lý". Bất kỳ sự vật, sự 
 việc nào xảy ra thì cũng đều là ý muốn của trời đất. Cho dù tâm trí nhị nguyên
 luôn cố gắng đánh giá, phán xét đó là tốt hay xấu, được hay mất, lợi hay hại thì
-cũng đều là không xác đáng và chân thực bằng hình ảnh được phản ánh bởi cái tâm
+cũng đều là không xác đáng và chân thực bằng hình ảnh được phản ánh bởi cái Tâm
 hư.
 
 Và rồi sau khi thu nhận tất cả, thì cũng đừng ôm ấp, níu giữ gì nơi đáy lòng.
