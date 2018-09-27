@@ -174,7 +174,7 @@ Et peins!
 Quan sát bụi tre trong 10 năm,  
 Trở thành bụi tre ấy,  
 Rồi quên hết đi  
-Bấy giờ, hãy vẽ!
+Bấy giờ hãy vẽ!
 
 ***
 
