@@ -18,8 +18,8 @@ phá được cái ác tập nhị nguyên để đi đến Giải thoát.
 
 Như trước đây đã nói, thực hiện Đạo không khó, miễn đừng lựa chọn, đừng còn có
 sự ưa ghét nữa. Lòng người thường ưa Sướng ghét Khổ, ưa Sáng ghét Tối, ưa Vinh
-ghét Nhục, ưa Thiện ghét Ác, ưa Thắng ghét Bại, ưa Lợi ghét Hại một cách triệt
-để và thiên vị, trong khi những cặp đối đãi ấy không bao giờ có thể tách rời
+ghét Nhục, ưa Thiện ghét Ác, ưa Thắng ghét Bại, ưa Lợi ghét Hại, một cách triệt
+để và thiên vị; Trong khi những cặp đối đãi ấy không bao giờ có thể tách rời
 nhau. Sướng với khổ liên đới với nhau một cách hết sức mật thiết như hình với
 bóng. Bởi vậy, mong Sướng mà không có Khổ, mong Vinh mà không có Nhục, mong Sáng
 mà không có Tối... nên lòng mới có ưu tư, lo được sợ mất.
