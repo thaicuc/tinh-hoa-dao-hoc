@@ -33,17 +33,17 @@ cái Loạn... Hay nói một cách khác, theo kinh dịch: "Âm trung hữu D�
 Dương trung hữu Âm căn." 陰中有陽根陽中有陰根.
 
 Trang Tử nói có được cái nhìn đó là người có Vương đức. Vương đức là Đức của
-Chân nhân... "nghe rõ được trong chốn vô minh, thấy rõ được trong chốn mờ mờ,
+Chân nhân... "nghe rõ được trong chốn vô minh, thấy rõ được trong chốn mờ mờ"
 nghĩa là nghe thấy được trong những chỗ gọi là vô thanh vô sắc. Trong chốn mờ
 mờ của vô sắc, họ thấy rõ cái ánh sáng của Đạo, trong chốn im lìm của vô thanh,
 họ thấy rõ cái nhạc điệu Thái hòa của tất cả mọi cuộc xung đột và mâu thuẫn trên
-đời." Hay nói một cách khác, họ là người thấy được rất rõ trong Âm có Dương,
+đời. Hay nói một cách khác, họ là người thấy được rất rõ trong Âm có Dương,
 trong Dương có Âm. 王德視乎冥冥聽乎無聲冥冥之中獨 獨 見曉焉.
 
 Đạo học Tây phương có câu: "Trong chốn tĩnh lặng có một âm thanh, trong âm thanh
 đó có một tiếng nói. Đó là tiếng nói của sự tĩnh lặng." (Au sein du SILENCE, il
 est un SON, et au sein de ce Son, il est une VOIX qui parle. C’est la VOIX du
-SILENCE). Lão Tử gọi là: Ngôn vô ngôn. 言無言.
+SILENCE). Lão Tử gọi đó là: "Ngôn vô ngôn". 言無言.
 
 Trong Tiên thiên bát quái, Hư vô nằm ngay chỗ gặp gỡ của hai đường kinh vĩ làm
 thành chữ Thập của những quẻ Kiền-Khôn và Ly-Khảm. Tâm hư trụ nơi chỗ vô trụ đó,
