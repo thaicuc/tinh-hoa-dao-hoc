@@ -8,10 +8,10 @@ dòng điện lực, mới có sự chuyển vận vô cùng, vô tận của t�
 
 Tồn tại những sự mất quân bình ấy trên thế gian này, mới thấy in tuồng như không
 có quân bình. Nhưng kỳ thực, chỉ là những sự mất quân bình tạm thời, đang tìm
-cách thiết lập lại cái quân bình bị gián đoạn. Như cái đòng đưa đang bị ly tâm,
-lắc lư để tìm cách lấy lại trạng thái quân bình lúc ban đầu. Sự quân bình (hư
-vô) thấy thì như Vô hình, Vô vi, nhưng chính nó lại là thứ chi phối tất cả mọi
-sự vật, sự việc trên đời.
+cách thiết lập lại cái quân bình bị gián đoạn; Giống như chiếc đòng đưa đang bị 
+ly tâm, lắc lư để tìm cách lấy lại trạng thái quân bình lúc ban đầu. Sự quân 
+bình (hư vô) thấy thì như Vô hình, Vô vi, nhưng chính nó lại là thứ chi phối tất 
+cả mọi sự vật, sự việc trên đời.
 
 Những hình thức cân đối làm cho ta cảm thấy như một cái gì bất động, không có sự
 sống. Vì thế nhà văn Sakarazawa Nyoti, trong quyển Le Livre des Fleurs, có viết:
