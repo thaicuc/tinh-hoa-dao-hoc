@@ -27,7 +27,7 @@ Nhưng coi chừng! Đừng để bị vướng vào đâu cả!" (Acceptez tout
 gardez-vous bien d’être attaché à quoi que ce soit).
 
 Thường thì cái gì mình ưa thích sẽ hay gìn giữ, ôm ấp trong lòng. Ưa thì ấp ủ đã
-đành, nhưng ghét lại cũng khó quên, vì nó đối chọi với cái mà mình ưa thích;
+đành, nhưng ghét cũng lại khó quên; Là vì nó đối chọi với cái mà mình ưa thích.
 Thành ra cái mà mình ghét lại càng ngày càng ăn sâu vào tâm khảm: "Tương dục phế
 chi, tất cố hưng chi" (Hòng muốn phế đó, lại làm cho đó hưng lên).
 
@@ -36,7 +36,7 @@ tốt đẹp bao nhiêu, thì lại càng ghét cái ta cho là xấu xa bấy n
 thì phải đến tối, hết ngày thì phải đến đêm, hết Xuân Hạ thì phải tới Thu
 Đông... Có ai lại ngồi nguyền rủa bóng tối và mùa Đông hay không?
 
-Cho nên, Sống là chấp nhận, chấp nhận một cách thông minh những gì mà lẽ nó phải
-vậy; Không vậy không đặng: "đất đắc bất nhiên".
+Cho nên, Sống là chấp nhận; Chấp nhận một cách thông minh những gì mà lẽ nó phải
+vậy; Không vậy không đặng. "Bất đắc bất nhiên."
 
 [11. Hoài Nghi &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/contents/11-hoai-nghi.md)
