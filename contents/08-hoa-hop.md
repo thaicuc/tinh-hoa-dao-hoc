@@ -14,11 +14,11 @@ bình (hư vô) thấy thì như Vô hình, Vô vi, nhưng chính nó lại là 
 cả mọi sự vật, sự việc trên đời.
 
 Những hình thức cân đối làm cho ta cảm thấy như một cái gì bất động, không có sự
-sống. Vì thế nhà văn Sakarazawa Nyoti, trong quyển Le Livre des Fleurs, có viết:
+sống. Vì thế, nhà văn Sakarazawa Nyoti trong quyển Le Livre des Fleurs, có viết:
 "Tạo hóa không bao giờ tạo ra cân đối. Cân đối đồng nghĩa với sự bất động, với
 sự gì như đã kết liễu. Trái lại, cái gì không cân đối mới có thể gây được cái
-cảm giác chưa xong (Vị tế), cái cảm giác có sống." (La Nature ne produit jamais
-de symétrie. Symétrie est synonyme d’immobilité, de terminaison. Ce qui est
+cảm giác chưa xong, cái cảm giác có sống." (La Nature ne produit jamais de 
+symétrie. Symétrie est synonyme d’immobilité, de terminaison. Ce qui est
 asymétrique, au contraire, ce qui donne l’impression d’être inachevé est seul
 capable de traduire la Vie).
 
