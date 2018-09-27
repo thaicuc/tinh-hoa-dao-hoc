@@ -29,7 +29,7 @@ mình.
 Phải tập cho lòng mình luôn bình thản, vô tư, thanh tịnh; Nghĩa là đừng để cho
 những vấn đề thị phi, vinh nhục đảo điên nơi cõi lòng nữa. Phàm khi thấy ai nói
 gì hoặc làm gì, ta hay có thói phê bình, biện diệt, lên án, hoặc biện minh. Óc
-bè phái và kỳ thị chính là nhân những lúc đó mà sinh ra.
+bè phái và kỳ thị, chính là nhân những lúc đó mà sinh ra.
 
 Nhiều phái Đạo học của Đông phương cũng như Huyền học của Tây phương, khuyên các
 hàng đệ tử muốn nhập Đạo phải tập cho mình có một thái độ thản nhiên, điềm tĩnh
