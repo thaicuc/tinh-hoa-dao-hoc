@@ -20,15 +20,17 @@ Như trước đây đã nói, thực hiện Đạo không khó, miễn đừng 
 sự ưa ghét nữa. Lòng người thường ưa Sướng ghét Khổ, ưa Sáng ghét Tối, ưa Vinh
 ghét Nhục, ưa Thiện ghét Ác, ưa Thắng ghét Bại, ưa Lợi ghét Hại, một cách triệt
 để và thiên vị; Trong khi những cặp đối đãi ấy không bao giờ có thể tách rời
-nhau. Sướng với khổ liên đới với nhau một cách hết sức mật thiết như hình với
-bóng. Bởi vậy, mong Sướng mà không có Khổ, mong Vinh mà không có Nhục, mong Sáng
-mà không có Tối... nên lòng mới có ưu tư, lo được sợ mất.
+nhau. Sướng với Khổ, Sáng với Tối, Vinh với Nhục, liên đới với nhau một cách 
+hết sức mật thiết như hình với bóng. Bởi vậy, mong Sướng mà không có Khổ, mong 
+Vinh mà không có Nhục, mong Sáng mà không có Tối... nên lòng mới có ưu tư, lo 
+được sợ mất.
 
-Mong được mà chưa được, khổ. Không được, càng khổ hơn. Nhưng giả sử được rồi,
+Mong được mà chưa được, khổ. Không được, càng khổ hơn.. Nhưng giả sử được rồi,
 mừng chẳng bao lâu đã sinh ra lòng ưu tư sợ mất. Chưa mất, nhưng trong lòng cứ
-đau đáu sợ mất thì còn sung sướng gì nữa. Đời, thì có cái gì được mà không mất,
-và khi thực sự mất đi, thì đau khổ sẽ đến bực nào! Bởi vậy mới có nói: "Tìm hạnh
-phúc sẽ không bao giờ có hạnh phúc mà chỉ có ưu tư hay thống khổ mà thôi".
+đau đáu sợ mất thì còn sung sướng gì nữa? Mà đời thì có cái gì được lại không 
+mất? Và khi thực sự mất đi, thì đau khổ sẽ đến bực nào? Bởi vậy mới có nói: 
+"Tìm hạnh phúc sẽ không bao giờ thấy hạnh phúc mà chỉ thấy ưu tư hay thống khổ 
+mà thôi".
 
 Lão Tử, vì vậy, khuyên ta "bất dục đắc" (đừng mong được). Có vượt qua được cái
 lòng ưa ghét và muốn được, thì mới có thể thực hiện được cái Tâm hư như đã nói.
