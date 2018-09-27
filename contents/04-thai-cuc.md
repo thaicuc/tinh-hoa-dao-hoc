@@ -86,9 +86,9 @@ Nhà văn Tây phương, Gustave Thibon, cũng đồng một lập trường nh�
 tuyên bố: "... Sự lầm lạc thứ hai là cho rằng có một sự tranh chấp dứt khoát
 giữa Tả và Hữu trong khi cả hai tương nhập và bổ túc lẫn nhau để giữ gìn sự nhất
 trí của sự sống. Trong thực tế, không có một vị lãnh đạo chân chính nào của nhân
-loại lại thuộc về phái Tả hay phái Hữu một cách tuyệt đối và không bao giờ thay
-đổi. Tùy nơi, tùy buổi, tùy hoàn cảnh, họ đứng khi bên hữu, khi bên tả (mà thực
-sự họ không hữu, không tả)... Lúc nào nền tảng xã hội sắp khuynh hẳn về phía
+loại lại thuộc về phái Tả hay phái Hữu một cách tuyệt đối và "không bao giờ thay
+đổi". Tùy nơi, tùy buổi, tùy hoàn cảnh, họ đứng khi bên hữu, khi bên tả (mà thực
+sự họ không Tả, không Hữu)... Lúc nào nền tảng xã hội sắp khuynh hẳn về phía
 Hữu, thì chúng tôi đứng về phía Tả để giữ quân bình cũng như lúc nào nền tảng xã
 hội sắp bị khuynh hẳn về phía Tả, thì chúng tôi sẽ đứng về phía Hữu. Với những
 ai lên án chúng tôi là tương đối, là xu thời và trách chúng tôi không dám có một
