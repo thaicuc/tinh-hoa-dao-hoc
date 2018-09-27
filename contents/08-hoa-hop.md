@@ -37,7 +37,7 @@ deux vérités opposées et de croire qu’elles sont incompatibles).
 
 Và như thế, muốn trừ bớt được phần nào sự cuồng tín, phải chăng may ra chỉ có
 thứ văn hóa nhất nguyên lưỡng cực động của Đông phương Đạo học và huyền học Tây
-phương là có thể trở thành một phương tiện hữu ích, để có thể đem lại cho loài
-người Tình thương và Hòa bình thực sự mà thôi.
+phương, là có thể trở thành một phương tiện hữu ích, đem lại cho loài người 
+Tình thương và Hòa bình thực sự mà thôi.
 
 [9. Tâm Hư &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/contents/09-tam-hu.md)
