@@ -29,7 +29,7 @@ không nói mà nói rất rõ ràng. Ngày xưa, Như Lai sau 49 năm thuyết 
 cùng lại nói: "Ta chưa từng nói một lời nào." Đó cũng chính là phép "thính hồ vô
 thinh" của Trang Tử trong Nam Hoa Kinh.
 
-Văn nghệ phẩm thượng đẳng của Đông phương, vì vậy, phần nói lên bằng lời không
+Văn nghệ phẩm thượng đẳng của phương Đông, vì vậy, phần nói lên bằng lời không
 phải là phần chính yếu; Phần chính yếu lại là phần không tài nào diễn tả rõ ràng
 được mà chỉ có thể hiểu ngầm trong câu văn hay nét họa mà thôi. Những bức tranh
 không lời dồi dào ý nghĩa hơn những bức tranh có lời, cũng như những bản nhạc
