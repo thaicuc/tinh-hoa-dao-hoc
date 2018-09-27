@@ -39,18 +39,18 @@ chẳng thốt ra bằng lời, dù thái độ bên ngoài của ta thản nhi�
 thâm tâm cũng tuyệt đối không nên có một phản ứng gì cả.
 
 Phải giữ cho lòng mình phẳng lặng như mặt nước hồ thu không gợn sóng. Phải xét
-thật kỹ đến chốn thâm sâu của cõi lòng, xem có còn ẩn núp nơi đâu những lượn
-sóng ngầm, những khuynh hướng riêng tư, lựa chọn, cho dù bề ngoài thấy như thản
-nhiên không máy động.
+thật kỹ đến tận chốn thâm sâu trong cõi lòng, xem có còn ẩn núp nơi đâu những 
+lượn sóng ngầm, những khuynh hướng riêng tư, lựa chọn, cho dù bề ngoài thấy như 
+thản nhiên không máy động.
 
-Phải bỏ hết cả sự ưa, ghét của người lẫn của ta; Bỏ cả những thành kiến và dư
-luận xung quanh, để nhìn tất cả vạn vật với cặp mắt "bình đẳng đại đồng" của nhà
-Phật, với cặp mắt "huyền đồng" và "tề vật" của Lão - Trang, một cách hết sức
-chân thành: "Thành giả, Thánh nhi dĩ hĩ" 誠者聖而已矣.
+Phải bỏ hết cả sự ưa ghét của người lẫn của ta; Bỏ cả những thành kiến và dư
+luận xung quanh, để nhìn tất cả vạn vật với cặp mắt "bình đẳng đại đồng" của 
+nhà Phật, với cặp mắt "huyền đồng" và "tề vật" của Lão - Trang, một cách hết 
+sức chân thành: "Thành giả, Thánh nhi dĩ hĩ." 誠者聖而已矣
 
-Được thế, lâu ngày, ta sẽ mất dần cái gọi là bản ngã chứa đầy quá khứ (thành
-kiến) để có thể hòa nhập tâm hồn vào vạn vật. Như vậy mới có thể "dĩ bách tánh
-tâm vi tâm", lần hồi đi đến tâm trạng của kẻ đã huyền đồng cùng vũ trụ; mới có
+Được thế, lâu ngày, ta sẽ mất dần cái gọi là bản ngã chứa đầy thành kiến (quá 
+khứ) để tâm hồn có thể hòa nhập vào vạn vật. Như vậy mới có thể "dĩ bách tánh
+tâm vi tâm", lần hồi đi đến tâm trạng của kẻ đã huyền đồng cùng vũ trụ; Mới có
 thể cảm ngộ được cái được gọi là "Ngô tâm tiện thị vũ trụ, vũ trụ tiện thị ngô
 tâm".
 
