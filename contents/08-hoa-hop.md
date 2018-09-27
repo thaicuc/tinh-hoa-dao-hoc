@@ -26,8 +26,8 @@ Trong xã hội náo loạn của một chế độ Hữu vi cực độ ngày n
 của Lão, Trang nói riêng và của Đạo học Đông phương nói chung, ắt phải có sứ
 mệnh gì thiết thực của nó trong cái thế quân bình chung của nhân loại, chứ đâu
 phải là chuyện thanh đàm vô dụng như nhiều người đã nghĩ. Biết đâu nó sẽ là một
-trong những giải pháp để đem đến cho con người một tâm hồn cao rộng, tiêu trừ
-được những ác tập nhị nguyên hẹp hòi câu chấp hay suy nghĩ một chiều.
+trong những giải pháp có thể đem đến cho con người một tâm hồn cao rộng, tiêu 
+trừ được những ác tập nhị nguyên hẹp hòi câu chấp hay suy nghĩ một chiều.
 
 Lối suy nghĩ một chiều rất dễ sinh ra cuồng tín, và cuồng tín là tai họa lớn
 nhất của bất cứ thời đại nào. Như Pascal đã từng nói: "Nguồn gốc của mọi tà
