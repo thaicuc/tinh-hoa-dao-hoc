@@ -117,15 +117,15 @@ chi sở Phục" 禍兮福之所倚, 福兮禍之所伏.
 Việc trong thiên hạ, mầm họa đâu phải sinh ra trong lúc loạn ly, mà thường dễ
 sinh ra trong những lúc thái bình thạnh trị. Hoạ đâu phải sinh ra trong cơn họa
 loạn, mà thường dễ sinh ra trong những lúc đang hưởng hạnh phúc tuyệt vời. Bởi
-vậy mới có câu: "Nguy giả, hữu an kỳ vị giả dã; vong giả, bảo kỳ tồn giả dã;
-loạn giả, hữu kỳ giả dã. Thị cố: quân tử an nhi bất vong nguy; tồn nhi bất vong
-vong; trị nhi bất vong loạn. Thị dĩ nhân an nhi quốc gia khả bảo dã."
+vậy mới có câu: "Nguy giả, hữu an kỳ vị giả dã; Vong giả, bảo kỳ tồn giả dã;
+Loạn giả, hữu kỳ giả dã. Thị cố: quân tử an nhi bất vong nguy; Tồn nhi bất vong
+vong; Trị nhi bất vong loạn. Thị dĩ nhân an nhi quốc gia khả bảo dã."
 危者有安其位也亡者保其存者也亂者有其治者也. 是故君子安不忘危. 存而不忘亡. 治而不忘亂.
 是以身安而國家可保也.
 
-Nguy, là yên chí với ngôi vị của mình; mất, là vì chắc ở sự còn mãi; Loạn, là vì
+Nguy, là yên chí với ngôi vị của mình; Mất, là vì chắc ở sự còn mãi; Loạn, là vì
 cậy ở sự được mãi bình trị. Bởi vậy, người hiểu Dịch lúc yên ổn không quên lúc
-nguy; lúc còn không quên lúc sắp mất; lúc trị không quên lúc loạn. Nhờ vậy mà
+nguy; Lúc còn không quên lúc sắp mất; Lúc trị không quên lúc loạn. Nhờ vậy mà
 thân mới được yên, và nước mới có thể giữ được.
 
 [5. Nhu Thuật &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/contents/05-nhu-thuat.md)
