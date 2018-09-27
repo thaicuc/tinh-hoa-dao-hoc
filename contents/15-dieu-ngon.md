@@ -55,18 +55,17 @@ Tout finit afin, que tout recommence.
 Tout meurt afin, que tout vive.  
 ***\_\_Jean-Henri Fabre***
 
-Tất cả đều phải chấm dứt,
+Tất cả đều phải chấm dứt,  
 Để cho tất cả đều được bắt đầu.  
-Tất cả đều phải chết,
+Tất cả đều phải chết,  
 Để cho tất cả đều được sống.
 
 ***
 
-***\_\_Trích Tống Nguyên Học Án***
-
 Trình Y Xuyên bảo: "Thiên nhân hợp nhất."  
 Nhưng Trình Minh Đạo lại nói: "Còn nói đến hợp nhất là còn chia 2. Phải nói:
 thiên nhân Vi nhất."  
+***\_\_Trích Tống Nguyên Học Án***
 
 ***
 
@@ -91,8 +90,6 @@ Tất cả mọi cuộc đại biến tự nhiên đều là những gì cần t
 
 ***
 
-***\_\_Lục tổ Huệ Năng***
-
 Đừng nghĩ rằng tu theo Đạo là lấy Sáng trừ Tối, lấy Bồ đề phá Phiền não. Là vì
 bồ đề tức phiền não, chẳng khác nhau, chẳng phải hai. Lấy trí huệ phá phiền
 não, là kiến giải “có hai” của hàng Thanh văn Duyên giác. Hàng trí cao, căn lớn
@@ -105,22 +102,21 @@ chẳng ở ngoài, mà cũng chẳng ở giữa, chẳng sinh chẳng diệt, n
 thường trụ chẳng dời. Đó gọi là Đạo. Nếu muốn biết được chỗ tâm yếu của Thiền,
 thì Lành Dữ bất tất đừng nghĩ đến, tự nhiên sẽ ngộ nhập được vào tánh thanh
 tịnh của Tâm, tuy vắng lặng linh minh mà diệu dụng vô cùng; đáp ứng với thế sự
-thì tùy kỳ vô tận.
+thì tùy kỳ vô tận.  
+***\_\_Lục tổ Huệ Năng***
 
 ***
-
-***\_\_Trích Thiền truyện***
 
 Có người hỏi Lục tổ Huệ Năng: "Tại sao Ngũ tổ truyền y bát cho ông?"  
-Lục tổ đáp: "Vì Ngài biết rằng tôi rất dốt Phật pháp."
+Lục tổ đáp: "Vì Ngài biết rằng tôi rất dốt Phật pháp."  
+***\_\_Trích Thiền truyện***
 
 ***
-
-***\_\_Ramana Maharshi***
 
 Dù tội lỗi đến đâu, cũng đừng khóc than tuyệt vọng rằng người tội lỗi không bao
 giờ đi đến Giải thoát được. Hãy vứt hẳn đi cái mặc cảm rằng mình tội lỗi. Người
-Giải thoát là người không còn cái gọi là mặc cảm tội lỗi nữa.
+Giải thoát là người không còn cái gọi là mặc cảm tội lỗi nữa.  
+***\_\_Ramana Maharshi***
 
 ***
 
