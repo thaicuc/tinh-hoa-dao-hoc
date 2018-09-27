@@ -31,7 +31,7 @@ mắt như tai, tai như mũi, mũi như miệng, cả thảy đồng nhau. Tâm
 làm một khối, còn hình thể ta thì nhẹ nhàng, thịt xương như sương khói. Ta không
 còn biết lưng ta tựa nơi đâu, chân ta đứng nơi nào. Ta tha hồ bay bổng như cỡi
 gió mà đi khắp chốn, khi Đông khi Tây, không phương hướng nhất định, không khác
-nào chiếc lá bay. Ta không biết có phải là ta cỡi gió, hay gió cỡi ta nữa."
+nào chiếc lá bay. Ta không biết có phải là gió cỡi ta, hay ta cỡi gió nữa."
 
 Chỗ mà Liệt Tử bảo là "không phương hướng nhất định", cũng chính là chỗ mà Trang
 Tử bảo là "vô hà hữu chi hương", nhà Phật gọi là "ưng vô sở trụ". Nghệ thuật
