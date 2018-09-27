@@ -22,9 +22,9 @@ hồ cũng không còn lưu giữ hình ảnh của cái gọi là quá khứ ki
 đẹp đến bực nào. Bởi vậy, Trang Tử bảo: "ứng nhi bất tàng" 應而不藏. Nhờ không
 chứa giữ mà tâm hồn mới luôn được trong sáng như mặt gương không vẩn đục.
 
-Shri Anirvan, vì vậy, cũng từng nói với đệ tử những lời này: "Hãy chấp nhận tất
-cả... Nhưng coi chừng! Đừng để bị vướng vào đâu cả!" (Acceptez toute chose...
-mais gardez-vous bien d’être attaché à quoi que ce soit).
+Shri Anirvan, vì vậy, đã nói với đệ tử những lời này: "Hãy chấp nhận tất cả... 
+Nhưng coi chừng! Đừng để bị vướng vào đâu cả!" (Acceptez toute chose... mais 
+gardez-vous bien d’être attaché à quoi que ce soit).
 
 Thường thì cái gì mình ưa thích sẽ hay gìn giữ, ôm ấp trong lòng. Ưa thì ấp ủ đã
 đành, nhưng ghét lại cũng khó quên, vì nó đối chọi với cái mà mình ưa thích;
