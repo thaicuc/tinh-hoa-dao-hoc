@@ -20,8 +20,8 @@ Như trước đây đã nói, thực hiện Đạo không khó, miễn đừng 
 sự ưa ghét nữa. Lòng người thường ưa Sướng ghét Khổ, ưa Sáng ghét Tối, ưa Vinh
 ghét Nhục, ưa Thiện ghét Ác, ưa Thắng ghét Bại, ưa Lợi ghét Hại một cách triệt
 để và thiên vị, trong khi những cặp đối đãi ấy không bao giờ có thể tách rời
-nhau. Sướng với khổ liên đới với nhau một cách hết sức mật thiết như bóng với
-hình. Bởi vậy, mong Sướng mà không có Khổ, mong Vinh mà không có Nhục, mong Sáng
+nhau. Sướng với khổ liên đới với nhau một cách hết sức mật thiết như hình với
+bóng. Bởi vậy, mong Sướng mà không có Khổ, mong Vinh mà không có Nhục, mong Sáng
 mà không có Tối... nên lòng mới có ưu tư, lo được sợ mất.
 
 Mong được mà chưa được, khổ. Không được, càng khổ hơn. Nhưng giả sử được rồi,
