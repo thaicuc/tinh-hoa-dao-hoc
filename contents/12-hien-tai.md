@@ -8,9 +8,9 @@ nói. Nhưng đừng có ý muốn sửa đổi gì cả. Chỉ nhìn xem một 
 lùng. Và như vậy, anh sẽ trở nên rất nhạy cảm, ... Do sự quan sát tỉ mỉ ấy, quan
 sát mà không thiên vị, không lựa chọn, không đánh giá, không biện minh, không so
 sánh, không lên án, ta sẽ trở nên vô cùng nhạy cảm và hoạt bát phi thường. Tất
-cả những gì chứa trong tâm trí anh đều sẽ được tẩy sạch và trở thành Hư vô...
-Lên án hay biện minh, đều là những trở ngại khiến ta không sao nhìn thấy được
-hiện thực một cách sáng suốt."
+cả những gì chứa đựng trong tâm trí anh đều sẽ được tẩy sạch và trở thành Hư 
+vô... Lên án hay biện minh, đều là những trở ngại khiến ta không sao nhìn thấy 
+được hiện thực một cách sáng suốt."
 
 Những lời đó có thể được xem là giáo lý căn bản của Krishnamurti; Đặc biệt là
 lại rất trùng hợp với phương pháp "dụng tâm nhược kính" của Trang Tử; Và cũng là
