@@ -86,26 +86,27 @@ Nhà văn Tây phương, Gustave Thibon, cũng đồng một lập trường nh�
 tuyên bố: "... Sự lầm lạc thứ hai là cho rằng có một sự tranh chấp dứt khoát
 giữa Tả và Hữu trong khi cả hai tương nhập và bổ túc lẫn nhau để giữ gìn sự nhất
 trí của sự sống. Trong thực tế, không có một vị lãnh đạo chân chính nào của nhân
-loại lại thuộc về phái Tả hay phái Hữu một cách tuyệt đối và "không bao giờ thay
-đổi". Tùy nơi, tùy buổi, tùy hoàn cảnh, họ đứng khi bên hữu, khi bên tả (mà thực
-sự họ không Tả, không Hữu)... Lúc nào nền tảng xã hội sắp khuynh hẳn về phía
-Hữu, thì chúng tôi đứng về phía Tả để giữ quân bình cũng như lúc nào nền tảng xã
-hội sắp bị khuynh hẳn về phía Tả, thì chúng tôi sẽ đứng về phía Hữu. Với những
-ai lên án chúng tôi là tương đối, là xu thời và trách chúng tôi không dám có một
-lập trường dứt khoát nào đối với nhóm Tả hay Hữu, chúng tôi xin tuyên bố rằng
-chúng tôi đã có một lập trường dứt khoát từ lâu rồi: giữ vững sự thăng bằng ngay
-chính giữa trọng tâm của tòa nhà xã hội." (... la seconde erreur consiste à
-établir une opposition absolue entre la gauche et la droite alors que ces deux
-notions, dans la mesure où elles correspondent à un objet réel, s’entrepénètrent
-et se complètent dans l’unité de la Vie. En réalité,aucun guide authentique de
-l’Humanité n’est de gauche ou de droite d’une facon absolue et définitive: il
-est de droite ou de gauche suivant les temps, les lieux, les circonstances et
-les diverses réalités qu’il brasse ... Là où l’échafaudage social menace de
-s’écrouler vers la gauche, nous nous portons vers la droite. À ceux qui nous
-accuseraient de relativié et d’opportunisme et nous reprocheraient de ne pas
-prendre nettement parti pour tel mouvement de droite ou de gauche, nous
-répondrions que nous avons déjà pris parti depuis toujours pour le CENTRE DE
-GRAVITÉ de l’édifice)
+loại lại thuộc về phái Tả hay phái Hữu một cách tuyệt đối và ***không bao giờ 
+thay đổi***. Tùy nơi, tùy buổi, tùy hoàn cảnh, họ đứng khi bên hữu, khi bên tả 
+(mà thực sự họ không Tả, không Hữu)..."
+
+"Lúc nào nền tảng xã hội sắp khuynh hẳn về phía Hữu, thì chúng tôi đứng về phía 
+Tả để giữ quân bình cũng như lúc nào nền tảng xã hội sắp bị khuynh hẳn về phía 
+Tả, thì chúng tôi sẽ đứng về phía Hữu. Với những ai lên án chúng tôi là tương 
+đối, là xu thời và trách chúng tôi không dám có một lập trường dứt khoát nào đối 
+với nhóm Tả hay Hữu, chúng tôi xin tuyên bố rằng chúng tôi đã có một lập trường 
+dứt khoát từ lâu rồi: giữ vững sự thăng bằng ngay chính giữa trọng tâm của tòa 
+nhà xã hội." (... la seconde erreur consiste à établir une opposition absolue 
+entre la gauche et la droite alors que ces deux notions, dans la mesure où elles 
+correspondent à un objet réel, s’entrepénètrent et se complètent dans l’unité de 
+la Vie. En réalité,aucun guide authentique de l’Humanité n’est de gauche ou de 
+droite d’une facon absolue et définitive: il est de droite ou de gauche suivant 
+les temps, les lieux, les circonstances et les diverses réalités qu’il brasse 
+... Là où l’échafaudage social menace de s’écrouler vers la gauche, nous nous 
+portons vers la droite. À ceux qui nous accuseraient de relativié et 
+d’opportunisme et nous reprocheraient de ne pas prendre nettement parti pour tel 
+mouvement de droite ou de gauche, nous répondrions que nous avons déjà pris 
+parti depuis toujours pour le CENTRE DE GRAVITÉ de l’édifice)
 
 Tóm lại, phàm đã nói đến quân bình là đã nói lên sự bình đẳng và đồng đẳng của 2
 nguyên lý Âm và Dương. Tinh hoa của Dịch lý nằm trong đồ Thái cực, đó là luật
