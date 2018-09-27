@@ -17,7 +17,7 @@ có khi còn gần ta hơn chính cái bản ngã của ta. Lắm khi ngồi tr�
 trôi giữa dòng sông mà ta chết khát, cũng như đang sống trong tự do mà chả biết
 tự do là gì cả, tay đang cầm ngọn lửa lại đi xin mồi lửa nơi láng giềng.
 
-Hư không trong hội họa của Đông phương được tượng trưng bằng những nét bút mạnh
+Trong hội họa của phương Đông, Hư không được tượng trưng bằng những nét bút mạnh
 và thẳng, nhưng cũng có khi chỉ như phớt nhẹ trên mặt giấy khiến cho người ta
 cảm thấy như nó đang bay đi vun vút và mất dạng vào không trung, không chịu
 "trụ" lại nơi nào cả. Vì vậy, người ta đánh giá tài hoa của người họa sĩ là ở
