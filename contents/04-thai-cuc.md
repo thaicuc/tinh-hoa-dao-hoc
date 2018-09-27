@@ -46,17 +46,19 @@ est un SON, et au sein de ce Son, il est une VOIX qui parle. C’est la VOIX du
 SILENCE). Lão Tử gọi đó là: "Ngôn vô ngôn". 言無言.
 
 Trong Tiên thiên bát quái, Hư vô nằm ngay chỗ gặp gỡ của hai đường kinh vĩ làm
-thành chữ Thập của những quẻ Kiền-Khôn và Ly-Khảm. Tâm hư trụ nơi chỗ vô trụ đó,
-mà Trang Tử gọi là "vô hà hữu chi lương". Toàn thể Chu dịch chỉ nói đi nói lại
-chỉ có một điểm chính ấy mà thôi, với đủ mọi khía cạnh. Như đã nói, Dịch có
-nghĩa là Biến nhưng cũng có nghĩa là Bất biến, hay Biến trong Bất biến, Động
-trong Tịnh. Và như ta đã thấy trước đây: Tịnh là gốc của Động, và người đắc Đạo
-là người biết: "Dĩ bất biến ứng vạn biến." 以不變應萬變. Lấy cái Tâm hư mà đối
-phó với vạn biến.
+thành chữ Thập của những quẻ Kiền-Khôn và Ly-Khảm. Tâm hư trụ ở ngay chính giữa 
+nơi "vô trụ" ấy. Đó cũng chính là chỗ mà Trang Tử gọi là "vô hà hữu chi lương". 
+Toàn thể Chu dịch chỉ nói đi nói lại có một điểm chính ấy mà thôi, với đủ mọi 
+khía cạnh.
 
-Thay vì nói đến 2 chữ Hư vô, Dịch là Trung Chánh. Nhờ nó khiến cho những gì bất
-Trung trở về chỗ Trung, những gì bất Chánh trở về chỗ Chánh. Trung Chánh mà đứng
-vững được rồi thì vạn biến mới được hanh thông.
+Như đã nói, Dịch có nghĩa là Biến nhưng cũng có nghĩa là Bất biến, hay Biến 
+trong Bất biến, Động trong Tịnh. Và như ta đã thấy trước đây: Tịnh là gốc của 
+Động, và người đắc Đạo là người biết: "Dĩ bất biến ứng vạn biến." 以不變應萬變. 
+Lấy cái Tâm hư mà đối phó với vạn biến.
+
+Thay vì nói đến 2 chữ Hư vô, Dịch là Trung Chánh. Nhờ nó mà có thể khiến cho 
+những gì bất Trung trở về chỗ Trung, những gì bất Chánh trở về chỗ Chánh. Trung 
+Chánh mà đứng vững được rồi thì vạn biến mới được hanh thông.
 易者何也中正而已矣使天下之不中歸于中使天下之不正歸于正中而萬變通矣.
 
 Chữ Chánh ở đây không phải là Chánh đối với Tà, mà để ám chỉ Hư vô, chỗ gặp gỡ
@@ -65,10 +67,10 @@ Chữ Chánh ở đây không phải là Chánh đối với Tà, mà để ám 
 自其變者而能知不易 之方 然後可以言易矣. Hay nói một cách khác: Học Dịch mà không
 hiểu rõ được cái Bất biến trong cái Biến thì sẽ không bao giờ hiểu được Dịch.
 
-Chỗ mà trước đây gọi là "bất dịch phương" Trang Tử gọi là Đạo Xu (Cốt Đạo), là
-Thiên Quân. Ông bảo: "đắc kỳ hoàn Trung dĩ ứng vô cùng" nghĩa là phải đứng vững
-ở chính giữa cái vòng tròn để giữ mức quân bình của Đạo. "Cao quá thì ép xuống,
-thấp quá thì nâng cao, có thừa thì bớt đi, không đủ thì thêm vào."
+Chỗ mà trước đây gọi là "bất dịch phương" Trang Tử gọi là "Đạo xu" (Cốt Đạo), 
+là "thiên quân". Ông bảo: "đắc kỳ hoàn Trung dĩ ứng vô cùng" nghĩa là phải đứng 
+vững ở chính giữa cái vòng tròn để giữ mức quân bình của Đạo. "Cao quá thì ép 
+xuống, thấp quá thì nâng cao, có thừa thì bớt đi, không đủ thì thêm vào."
 
 Đạo Trung Chánh thường bị hiểu rất sai lầm, khiến con người ta trở thành ba
 phải, nhút nhát, rụt rè. Người đi con người Trung Đạo có khi thiên tả, có khi
@@ -77,8 +79,8 @@ phải làm cho mất... để giữ được điểm Trung Chánh của Đạo.
 kinh nói: "Tri tiến thoái, tồn vong chi đạo nhi bất nhất kỳ Chánh dã. Kỳ duy
 Thánh nhân hồ!"
 其唯聖人乎知進退存亡之道而不失其正者其唯聖人乎. Biết lúc tiến mà tiến, lúc thối mà
-thối, biết lúc phải giữ cho còn mà giữ, lúc phải bỏ mà bỏ nhưng không bao giờ
-mất Trung Chánh, ôi chỉ có bậc Thánh nhân thôi sao!
+thối; Biết lúc phải giữ cho còn mà giữ, lúc phải bỏ mà bỏ; Nhưng không bao 
+giờ mất Trung Chánh, ôi chỉ có bậc Thánh nhân thôi sao!
 
 Nhà văn Tây phương, Gustave Thibon, cũng đồng một lập trường như trên, khi ông
 tuyên bố: "... Sự lầm lạc thứ hai là cho rằng có một sự tranh chấp dứt khoát
