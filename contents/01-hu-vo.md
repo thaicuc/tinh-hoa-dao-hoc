@@ -29,11 +29,11 @@ Bàn về công dụng của Hư vô, Lão Tử nói:
 > Nhờ chỗ Không mới có được cái Dụng của buồng the.
 
 Văn hào Romain Rolland, nhân bàn đến câu nói trên đây của Lão Tử có viết: "Khi
-đọc đến câu tư tưởng này của Lão Tử, tôi nghĩ ngay đến những giả thuyết mới đây
-của thiên văn học cho rằng những trung tâm chuyển động của bao nhiêu vũ trụ,
-chính nằm ngay ở những lỗ hổng to lớn của thái không." (... Je pense aux plus
-récentes hypothèses où vient de se hisser la science astronomique découvrant
-comme foyers de nombreux univers, des gouffres de Vide cosmique)
+đọc đến những câu tư tưởng này của Lão Tử, tôi nghĩ ngay đến những giả thuyết 
+mới đây của thiên văn học cho rằng những trung tâm chuyển động của bao nhiêu 
+vũ trụ, chính nằm ngay ở những lỗ hổng to lớn của thái không." (... Je pense 
+aux plus récentes hypothèses où vient de se hisser la science astronomique 
+découvrant comme foyers de nombreux univers, des gouffres de Vide cosmique)
 
 Thật vậy, những lỗ hổng trên không trung là những nơi thu hút rất mạnh không khí
 xung quanh, cũng như những vùng nước xoáy mạnh dưới đáy bao giờ cũng có những
