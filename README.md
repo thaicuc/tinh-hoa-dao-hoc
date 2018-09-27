@@ -1,6 +1,6 @@
 # Tinh Hoa Đạo Học
 
-> Nội dung đăng tải ở đây đã được lược giản.  
+> Nội dung đăng tải tại đây đã được lược giản.  
 > Bạn có thể tìm đọc bản đầy đủ "Tinh hoa Đạo học Đông phương" của cụ Nguyễn Duy Cần.
 
 [Lời Mở Đầu &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/contents/00-loi-mo-dau.md)
