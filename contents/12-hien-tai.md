@@ -21,7 +21,7 @@ Quan sát một cách khách quan sự vật quanh mình đâu phải dễ; Nh�
 sát mà không được phê bình, lên án, hoặc biện minh như thói quen mà ta đã có;
 Nhất là không nên có lòng mong ước sửa đổi hay cải thiện. Vì nếu nói đến cải
 thiện là mặc nhiên ta đã chấp nhận tồn tại một cái tốt hơn cái mà ta đang có,
-tức là lại rơi vào nhị nguyên, lại chuốc lấy đau khổ. Vậy nên Trang Tử có nói:
+tức là lại rơi vào nhị nguyên, lại chuốc lấy đau khổ. Vậy nên Trang Tử mới nói:
 "Cẳng vịt thì ngắn, cố kéo dài nó đau. Giò hạc thì dài, cố làm cho ngắn nó khổ.
 Cho nên, Tánh ra sao để như vậy thì sao có đau khổ?"
 
