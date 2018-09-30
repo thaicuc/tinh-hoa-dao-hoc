@@ -29,7 +29,7 @@ Có hiểu được 2 chữ Hư vô mới hiểu rõ được tại sao cái Sin
 Tử nằm trong cái Sinh, cái Chân nằm trong cái Giả, cái Giả nằm trong cái Chân,
 cái Hư nằm trong cái Thực, cái Thực nằm trong cái Hư, cái Phúc nằm trong cái
 Họa, cái Họa nằm trong cái Phúc, cái Loạn nằm trong cái Trị, cái Trị nằm trong
-cái Loạn... Hay nói một cách khác, theo kinh dịch: "Âm trung hữu Dương căn,
+cái Loạn... Hay nói một cách khác, theo Kinh Dịch: "Âm trung hữu Dương căn,
 Dương trung hữu Âm căn." 陰中有陽根陽中有陰根.
 
 Trang Tử nói có được cái nhìn đó là người có Vương đức. Vương đức là Đức của
