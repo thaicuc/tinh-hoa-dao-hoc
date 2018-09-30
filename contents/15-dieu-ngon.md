@@ -63,8 +63,8 @@ Tất cả đều phải chết,
 ***
 
 Trình Y Xuyên bảo: "Thiên nhân hợp nhất."  
-Nhưng Trình Minh Đạo lại nói: "Còn nói đến hợp nhất là còn chia 2. Phải nói:
-Thiên nhân Vi nhất."  
+Nhưng Trình Minh Đạo lại nói: "Còn nói đến hợp nhất là còn chia hai. Phải 
+nói: Thiên nhân Vi nhất."  
 ***\_\_Trích Tống Nguyên Học Án***
 
 ***
