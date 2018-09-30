@@ -30,7 +30,7 @@ mừng chẳng bao lâu đã sinh ra lòng ưu tư sợ mất. Chưa mất, như
 đau đáu sợ mất thì còn sung sướng gì nữa? Mà đời thì có cái gì được lại không 
 mất? Và khi thực sự mất đi, thì đau khổ sẽ đến bực nào? Bởi vậy mới có nói: 
 "Tìm hạnh phúc sẽ không bao giờ thấy hạnh phúc mà chỉ thấy ưu tư hay thống khổ 
-mà thôi".
+mà thôi."
 
 Lão Tử, vì vậy, khuyên ta "bất dục đắc" (đừng mong được). Có vượt qua được cái
 lòng ưa ghét và muốn được, thì mới có thể thực hiện được cái Tâm hư như đã nói.
