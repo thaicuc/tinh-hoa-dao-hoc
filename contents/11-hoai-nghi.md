@@ -9,7 +9,7 @@ Tôn giáo dạy ta phải tin, và tin tưởng tuyệt đối. Đạo học, t
 phải hoài nghi, và nghi ngờ tất cả. Trang Tử, vì vậy, đã nói: "Ôi! Thiên hạ đều
 biết tìm cái mà mình không biết, mà chẳng ai biết tìm lại cái mà mình đã biết;
 Đều biết chê cái mà mình cho là không phải, mà chẳng ai biết chê cái mà mình cho
-là phải".
+là phải."
 
 Nhân tâm là vậy, những gì ta cho là phải, ai nghĩ nghịch lại hoặc nói nghịch
 lại, là người thù. Bởi vậy, có nhà sử học đã thống kê cho biết, chỉ trong vòng
