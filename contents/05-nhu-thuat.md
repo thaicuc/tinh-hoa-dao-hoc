@@ -23,7 +23,7 @@ viết: "Vật, phương sinh phương tử."
 
 Dùng lời nói hữu hạn không sao miêu tả được cái Chân lý: vừa Hằng vừa Chuyển,
 vừa Tịnh vừa Động, vừa Bất dịch lại vừa Dịch. Bởi vậy, dùng Hư không trong nghệ
-thuật thượng thừa của Đông phương là phép dùng khoảng lặng để biểu diễn cái
+thuật thượng thừa của Đông phương là phép dùng "khoảng lặng" để biểu diễn cái
 "ngôn vô ngôn" (thoại không dùng lời) của Lão Tử. Nghĩa là nói mà như không nói,
 không nói mà nói rất rõ ràng. Ngày xưa, Như Lai sau 49 năm thuyết pháp, cuối
 cùng lại nói: "Ta chưa từng nói một lời nào." Đó cũng chính là phép "thính hồ vô
@@ -37,7 +37,7 @@ không lời ý vị thâm trầm hơn những bản nhạc có lời bị hạn
 đóng khung của thi nhân.
 
 Người ta nói: "Người nào chưa biết sự hạn chế của ngôn từ, người đó chưa bao giờ
-viết văn". Nhưng tôi muốn nói thêm: "Người nào chưa biết phải giữ im lặng những
-chỗ cần im lặng, người đó chưa biết dùng lời giỏi".
+viết văn." Nhưng tôi muốn nói thêm: "Người nào chưa biết phải giữ im lặng những
+chỗ cần im lặng, người đó chưa biết dùng lời giỏi."
 
 [6. Hoàn Hảo &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/contents/06-hoan-hao.md)
