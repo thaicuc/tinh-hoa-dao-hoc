@@ -5,7 +5,7 @@ thì kẻ đó đã là kẻ thủ của Tự do rồi. Kẻ nào yêu Tự do t
 hoặc phủ nhận tất cả mọi giá trị, hoặc tạm thời chấp nhận chúng mà thôi." (Celui
 qui croit fortement en une valeur est par là même un ennemi de la Liberté. Celui
 qui aime par-dessus tout la Liberté, celui-là ou bien nie les valeurs ou bien ne
-s’y attache que temporairement).
+s’y attache que temporairement.)
 
 Ông lại nói thêm: "... Thái độ căn bản cần phải có là giải thoát hoàn toàn lòng
 mình khỏi mọi giá trị và vứt bỏ tất cả, chứ không nên chuyển hóa nó theo kiểu
@@ -41,6 +41,6 @@ thường xuyên của tất cả các pháp Thiền là cái sống không mụ
 tâm trạng của người nghệ sĩ, cái cảm giác không biết đi về đâu trong cái khoảnh
 khắc Vô chung Vô thủy." (Le thème constant de tous les arts Zen, c’est la vie
 sans but, l’expression de l’état d’âme de l’artiste, sa sensation de n’aller
-nulle part en un instant intemporel...).
+nulle part en un instant intemporel...)
 
 [14. Cuộc Sống &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/contents/14-cuoc-song.md)
