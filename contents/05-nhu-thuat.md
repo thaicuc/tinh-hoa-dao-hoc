@@ -19,7 +19,7 @@ bóng; hơn là nói thẳng ra một cách quá rõ ràng và sống sượng. 
 cuộc "hằng chuyển như bộc lưu", cái gì đã qua là qua hẳn. Danh từ lại thuộc về
 Tịnh giới (hay giới nhị nguyên) không làm sao nói lên được cái chân lý tuyệt
 đối: vừa Thị vừa Phi, vừa Thiện vừa Ác, vừa Sinh vừa Tử. Vì vậy nên Huệ Thi mới
-viết: "Vật, phương sinh phương tử".
+viết: "Vật, phương sinh phương tử."
 
 Dùng lời nói hữu hạn không sao miêu tả được cái Chân lý: vừa Hằng vừa Chuyển,
 vừa Tịnh vừa Động, vừa Bất dịch lại vừa Dịch. Bởi vậy, dùng Hư không trong nghệ
