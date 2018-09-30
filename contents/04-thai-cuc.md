@@ -107,15 +107,15 @@ relativié et d’opportunisme et nous reprocheraient de ne pas prendre nettemen
 parti pour tel mouvement de droite ou de gauche, nous répondrions que nous 
 avons déjà pris parti depuis toujours pour le CENTRE DE GRAVITÉ de l’édifice)
 
-Tóm lại, phàm đã nói đến quân bình là đã nói lên sự bình đẳng và đồng đẳng của 2
+Tóm lại, phàm đã nói đến quân bình là nói đến sự bình đẳng và đồng đẳng của 2
 nguyên lý Âm và Dương. Tinh hoa của Dịch lý nằm trong đồ Thái cực, đó là luật
-"Âm trung hữu Dương căn, Dương trung hữu Âm căn." có thể xem là căn bản của vạn
-biến, mà Lão Tử đã nêu lên một cách cụ thể: "Họa hề Phúc chi sở ỷ, Phúc hề Họa
-chi sở Phục" 禍兮福之所倚, 福兮禍之所伏.
+"Âm trung hữu Dương căn, Dương trung hữu Âm căn." Đây thể xem là căn bản của 
+vạn biến, mà Lão Tử đã nêu lên một cách cụ thể: "Họa hề Phúc chi sở ỷ, Phúc hề 
+Họa chi sở Phục." 禍兮福之所倚, 福兮禍之所伏.
 
-Việc trong thiên hạ, mầm họa đâu phải sinh ra trong lúc loạn ly, mà thường dễ
+Việc trong thiên hạ, mầm họa đâu phải sinh ra trong lúc loạn ly, mà dễ thường
 sinh ra trong những lúc thái bình thạnh trị. Hoạ đâu phải sinh ra trong cơn họa
-loạn, mà thường dễ sinh ra trong những lúc đang hưởng hạnh phúc tuyệt vời. Bởi
+loạn, mà dễ thường sinh ra trong những lúc đang hưởng hạnh phúc tuyệt vời. Bởi
 vậy mới có câu: "Nguy giả, hữu an kỳ vị giả dã; Vong giả, bảo kỳ tồn giả dã;
 Loạn giả, hữu kỳ giả dã. Thị cố: quân tử an nhi bất vong nguy; Tồn nhi bất vong
 vong; Trị nhi bất vong loạn. Thị dĩ nhân an nhi quốc gia khả bảo dã."
