@@ -23,10 +23,10 @@ chưa nói hết lời.
 
 Trong quyển "Để thành nhà văn", tôi có lưu ý bạn đọc về điểm khá quan trọng này:
 "Cần nói nửa lời thôi, nhưng phải là những lời nói khêu gợi. Phải biết giúp cho
-người suy nghĩ, đừng suy nghĩ thế cho người. Người ta bảo: vì Pascal chết sớm
-nên sự nghiệp của ông có tính cách mạng giáo dục nhiều hơn cả, bởi lẽ rất giản
+người suy nghĩ, đừng suy nghĩ thế cho người. Người ta bảo, vì Pascal chết sớm
+nên sự nghiệp của ông có tính cách mạng giáo dục nhiều hơn cả; Bởi lẽ rất giản
 dị là nhờ bị gián đoạn mà Pascal chưa kịp nói hết lời. Tiếng đàn hay là nhờ ở dư
-âm; Lời nói hay là lời nói vắn tắt mà hậu ý thâm trầm man mác".
+âm; Lời nói hay là lời nói vắn tắt mà hậu ý thâm trầm man mác."
 
 Vậy nên, André Gide có nói: "Đâu phải những gì nói ra được mới tạo nên giá trị
 của một quyển sách, mà chính những gì không thể nói ra được, những gì muốn nói
