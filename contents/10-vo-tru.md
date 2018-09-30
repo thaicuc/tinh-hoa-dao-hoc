@@ -29,9 +29,9 @@ gardez-vous bien d’être attaché à quoi que ce soit).
 Thường thì cái gì mình ưa thích sẽ hay gìn giữ, ôm ấp trong lòng. Ưa thì ấp ủ đã
 đành, nhưng ghét cũng lại khó quên; Là vì nó đối chọi với cái mà mình ưa thích.
 Thành ra cái mà mình ghét lại càng ngày càng ăn sâu vào tâm khảm: "Tương dục phế
-chi, tất cố hưng chi" (Hòng muốn phế đó, lại làm cho đó hưng lên).
+chi, tất cố hưng chi." Hòng muốn phế đó, lại làm cho đó hưng lên.
 
-Ưa và ghét tương liên tương ứng không bao giờ rời nhau. Càng ưa cái mà ta cho là
+Ưa và Ghét tương liên tương ứng không bao giờ rời nhau. Càng ưa cái mà ta cho là
 tốt đẹp bao nhiêu, thì lại càng ghét cái ta cho là xấu xa bấy nhiêu... Hết sáng
 thì phải đến tối, hết ngày thì phải đến đêm, hết Xuân Hạ thì phải tới Thu
 Đông... Có ai lại ngồi nguyền rủa bóng tối và mùa Đông hay không?
