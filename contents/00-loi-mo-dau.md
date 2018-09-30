@@ -26,7 +26,7 @@ bác loạn chưa từng thấy có trong lịch sử loài người.
 Chữ "bác" (剝) ở đây là chúng tôi nói đến quẻ Bác trong Kinh Dịch: năm hào Âm
 đang áp chế một hào Dương cô độc đã sắp tàn lụi và lui vào bóng tối, tượng trưng
 cho một giai cấp thức giả già nua với những tâm trí chứa đầy thành kiến. Nhưng
-sau quẻ Bác là quẻ Phục: hào Dương ở quẻ Bác đã phục sinh nơi hào sơ ở quẻ Phục:
+sau quẻ Bác là quẻ Phục; Hào Dương ở quẻ Bác đã phục sinh nơi hào sơ ở quẻ Phục:
 "Con người cũ có chết đi, thì mới có thể được phục sinh trở thành con người mới".
 Nhân loại sắp đi vào một cuộc phục sinh chưa từng thấy từ xưa đến nay, mà có lẽ
 Tây phương sẽ cầm đầu phong trào phục hưng sau này.
@@ -40,11 +40,12 @@ thực. Có lẽ nhờ họ đã no nê chán mứa với nếp sống nhầy nh
 trong một thứ văn minh lý trí đến tột độ, và chính đó là nguyên do thuận lợi
 giúp họ nhận thấy rõ ràng hơn giá trị tinh thần của Đạo học Đông phương.
 
-H.M.Lassalle quả quyết rằng: "Thiền là món quà quý nhất Đông phương tặng Tây
-phương". Sách vở về Lão, Trang, hay Thiền bên Âu Mỹ in ra bao nhiêu bán hết bấy
-nhiêu. Quyển "The importance of living" của Lâm Ngữ Đường là sách bán chạy nhất
-liên tiếp trong 11 tháng và đã được dịch ra 14 thứ tiếng. Đó là quyển sách nói
-về nếp sống của nhóm người theo khuynh hướng tự nhiên của Trang Lão.
+H.M.Lassalle quả quyết rằng: "Thiền là món quà quý giá nhất mà Đông phương đem 
+tặng Tây phương". Sách vở về Lão, Trang, hay Thiền bên Âu Mỹ in ra bao nhiêu 
+bán hết bấy nhiêu. Quyển "The importance of living" của Lâm Ngữ Đường là sách 
+bán chạy nhất liên tiếp trong 11 tháng và đã được dịch ra 14 thứ tiếng. Đó là 
+quyển sách nói về nếp sống của nhóm người theo khuynh hướng tự nhiên của Trang 
+Lão.
 
 Đông phương, trái lại, có lẽ vì quá bận rộn về những cuộc cách mạng liên miên về
 chính trị, về những nhu cầu phát triển kỹ thuật để đáp ứng với đà tiến bộ vật
@@ -54,19 +55,19 @@ hào nhoáng rực rỡ bên ngoài mà khô khan cằn cỗi bên trong này, c
 khó bề thực hiện được một cách mạnh mẽ như bên Âu Mỹ ngày nay.
 
 Tuy nhiên, sự hướng về Đông phương của Tây phương ngày nay không có nghĩa là
-khuyên người Mỹ trở thành người Ấn, người Tây Âu trở thành người Trung Hoa, mà
-trái lại: đôi bên vẫn nên giữ cái nếp sống độc đáo của mình. Thích ứng không có
+khuyên người Mỹ trở thành người Ấn, người Tây Âu trở thành người Trung Hoa; Mà
+trái lại, đôi bên vẫn nên giữ cái nếp sống độc đáo của mình. Thích ứng không có
 nghĩa là "đồng" mà có nghĩa là "hòa". Nói như Kinh Dịch, tuy sự vật tương sinh,
 tương hóa mà cũng tự sinh, tự hóa. Và bởi thế mới có Thiền Ấn Độ, Thiền Trung
 Hoa, Thiền Nhật Bản, Thiền Việt Nam, Thiền Công Giáo (Zen Chrétien)...
 
 Giả sử có một tín đồ Công giáo đến thụ giáo một Thiền sư phương Đông, Thiền sư
 sẽ không bao giờ khuyến dụ anh bỏ Đạo của anh, mà chỉ hỏi quan niệm của anh về
-Jesus như thế nào, và phận sự của Thiền sư chỉ giúp anh quan niệm một cách chính
-xác hơn về Jesus mà thôi. Jesus, Thích Ca, Lão Tử chỉ là 1. Vấn đề chính của
-người tầm đạo là Giác Ngộ, mà Thiền là Giác Ngộ.
+Jesus như thế nào, và phận sự của Thiền sư là chỉ giúp anh quan niệm một cách 
+chính xác hơn về Jesus mà thôi. Jesus, Thích Ca, Lão Tử chỉ là 1. Vấn đề chính 
+của người tầm đạo là Giác Ngộ, mà Thiền là Giác Ngộ.
 
-Như trước đây đã nói: Hào dương ở quẻ Bác, là thứ Dương đã quá già, sắp mất
+Như trước đây đã nói, hào dương ở quẻ Bác là thứ Dương đã quá già, sắp mất 
 (chết) để được phục sinh vào thời quẻ Phục. Cho nên, con người "mới" có được
 phục sinh hay không, chính là nằm ở chỗ con người "cũ" phải chết đi. Con người
 "cũ" ở đây, là con người nhị nguyên, con người kết tinh của quá khứ, con người
@@ -78,7 +79,7 @@ Royaume de Dieu). "Nước của Chúa" ở đây, là ám chỉ Đạo.
 
 Quyển sách này đề cập đến "con người mới" ấy. Và bạn đọc, nếu còn thấy bỡ ngỡ
 khi mới bước vào ngưỡng cửa Đạo học Đông phương, nên đọc thêm những quyển "Nhập
-môn Triết học Đông phương", "Trang Tử tinh hoa", "Lão Tử tinh hoa", "Phật học
-tinh hoa", vì đây là phần tinh hoa của những bộ sách kia.
+môn Triết học Đông phương", "Trang Tử tinh hoa", "Lão Tử tinh hoa" và "Phật học
+tinh hoa"; Bởi vì đây là phần tinh hoa của những bộ sách kia.
 
 [1. Hư Vô &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/contents/01-hu-vo.md)
