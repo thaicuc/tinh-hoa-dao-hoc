@@ -10,7 +10,7 @@ những cái gì bất toàn (曲), những cái gì thiếu sót (少), những
 (枉). Thường thích nói vòng quanh hoặc bỏ ngỏ mà ít khi chịu nói thẳng.
 
 Phàm cái gì Thiếu cũng hay hơn Đủ, và lại càng hay hơn cái Thừa. Trong văn
-chương nghệ thuật, hễ bớt là thêm: "Tổn chi nhi ích". Nhờ thế mà văn càng được
+chương nghệ thuật, hễ bớt là thêm: "Tổn chi nhi ích." Nhờ thế mà văn càng được
 hàm súc, càng thêm khêu gợi. Không nói; Nhưng nếu cần phải nói, chỉ nên nói nửa
 lời thôi.
 
