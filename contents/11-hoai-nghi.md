@@ -2,8 +2,8 @@
 
 Phương pháp đầu tiên để đả phá óc nhị nguyên và thành kiến là phải có óc Hoài
 nghi, thứ Hoài nghi phá hoại (doute destructeur), và cũng là thứ hoài nghi giải
-thoát (doute libérateur). Không chỉ là hoài nghi những gì mình chưa biết, mà còn
-phải hoài nghi cả những gì mình tin tưởng và ưa thích nhất đời.
+thoát (doute libérateur). Không chỉ là phải hoài nghi những gì mình chưa biết, 
+mà còn phải hoài nghi cả những gì mình tin tưởng và ưa thích nhất đời.
 
 Tôn giáo dạy ta phải tin, và tin tưởng tuyệt đối. Đạo học, trái lại, lại bảo ta
 phải hoài nghi, và nghi ngờ tất cả. Trang Tử, vì vậy, đã nói: "Ôi! Thiên hạ đều
