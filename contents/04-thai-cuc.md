@@ -52,9 +52,9 @@ lương". Toàn thể Chu dịch chỉ nói đi nói lại có một điểm ch�
 đủ mọi khía cạnh.
 
 Như đã nói, Dịch có nghĩa là Biến nhưng cũng có nghĩa là Bất biến, hay Biến 
-trong Bất biến, Động trong Tịnh. Và như ta đã thấy trước đây: Tịnh là gốc của 
-Động, và người đắc Đạo là người biết: "Dĩ bất biến ứng vạn biến." 以不變應萬變. 
-Lấy cái Tâm hư mà đối phó với vạn biến.
+trong Bất biến, Động trong Tịnh. Và như ta đã thấy trước đây, Tịnh là gốc của 
+Động. Người đắc Đạo, vì thế, là người biết: "Dĩ bất biến ứng vạn biến." 
+以不變應萬變, lấy cái Tâm hư mà đối phó với vạn biến.
 
 Thay vì nói đến 2 chữ Hư vô, Dịch là Trung Chánh. Nhờ nó mà có thể khiến cho 
 những gì bất Trung trở về chỗ Trung, những gì bất Chánh trở về chỗ Chánh. Trung 
@@ -67,8 +67,8 @@ Chữ Chánh ở đây không phải là Chánh đối với Tà, mà để ám 
 自其變者而能知不易 之方 然後可以言易矣. Hay nói một cách khác: Học Dịch mà không
 hiểu rõ được cái Bất biến trong cái Biến thì sẽ không bao giờ hiểu được Dịch.
 
-Chỗ mà trước đây gọi là "bất dịch phương" Trang Tử gọi là "Đạo xu" (Cốt Đạo), 
-là "thiên quân". Ông bảo: "đắc kỳ hoàn Trung dĩ ứng vô cùng" nghĩa là phải đứng 
+Chỗ mà trước đây gọi là "bất dịch phương" Trang Tử gọi là "Đạo xu" (Cốt Đạo) hay 
+"thiên quân". Ông bảo: "đắc kỳ hoàn Trung dĩ ứng vô cùng" nghĩa là phải đứng 
 vững ở chính giữa cái vòng tròn để giữ mức quân bình của Đạo. "Cao quá thì ép 
 xuống, thấp quá thì nâng cao, có thừa thì bớt đi, không đủ thì thêm vào."
 
@@ -77,10 +77,9 @@ phải, nhút nhát, rụt rè. Người đi con người Trung Đạo có khi t
 thiên hữu, có khi phải tiến, có khi phải thôi, có khi phải giữ cho còn, có khi
 phải làm cho mất... để giữ được điểm Trung Chánh của Đạo. Chính là chỗ mà Dịch
 kinh nói: "Tri tiến thoái, tồn vong chi đạo nhi bất nhất kỳ Chánh dã. Kỳ duy
-Thánh nhân hồ!"
-其唯聖人乎知進退存亡之道而不失其正者其唯聖人乎. Biết lúc tiến mà tiến, lúc thối mà
-thối; Biết lúc phải giữ cho còn mà giữ, lúc phải bỏ mà bỏ; Nhưng không bao 
-giờ mất Trung Chánh, ôi chỉ có bậc Thánh nhân thôi sao!
+Thánh nhân hồ!" 其唯聖人乎知進退存亡之道而不失其正者其唯聖人乎. Biết lúc tiến mà 
+tiến, lúc thối mà thối; Biết lúc phải giữ cho còn mà giữ, lúc phải bỏ mà bỏ; 
+Nhưng không bao giờ mất Trung Chánh, ôi chỉ có bậc Thánh nhân thôi sao!
 
 Nhà văn Tây phương, Gustave Thibon, cũng đồng một lập trường như trên, khi ông
 tuyên bố: "... Sự lầm lạc thứ hai là cho rằng có một sự tranh chấp dứt khoát
