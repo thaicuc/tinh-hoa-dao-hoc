@@ -127,7 +127,7 @@ clarté est résola.
 
 Sống trong hiện tại một cách đầy đủ, toàn diện, là sống với “hiện hữu”, không
 phê bình lên án cũng không tìm cách biện minh. Tất cả mọi vấn đề, nhìn qua ánh
-sáng ấy đều được giải quyết.
+sáng ấy đều sẽ được giải quyết.
 
 ***
 
@@ -151,7 +151,7 @@ le plus souvent celui qui vit loin d’eux.
 ***\_\_Jean Grenier***
 
 Kẻ bắn giỏi hoặc người lội giỏi là những người bắn hoặc lội một cách thản nhiên
-không để ý đến việc bắn hay việc lội của mình; Cũng như những người có nhiều
+không để ý đến việc bắn hay việc lội của mình, cũng như những người có nhiều
 ảnh hưởng đối với đồng loại thường lại là những người sống cách xa đồng loại.
 
 ***
@@ -173,7 +173,7 @@ Et peins!
 
 Quan sát bụi tre trong 10 năm,  
 Trở thành bụi tre ấy,  
-Rồi quên hết đi  
+Sau đó, quên hết đi  
 Bấy giờ hãy vẽ!
 
 ***
