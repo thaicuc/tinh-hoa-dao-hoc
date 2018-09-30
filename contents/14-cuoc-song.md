@@ -24,10 +24,10 @@ việc xảy ra, không bao giờ có sự lặp lại của những cái đã q
 khi để cho giữa tâm trí của ta và những giây phút hiện tại có thêm một kẽ hở
 dành cho cái gọi là quá khứ hay thành kiến xen vào làm vách ngăn?
 
-"Thệ giả như tư phù, bất xả trú dạ", cuộc sống cứ cuồn cuộn trôi đi như nước
-chảy dưới chân cầu và luôn luôn biến đổi trong từng sát-na, chứ đừng nói là
-trong từng giây phút. Tâm trí của ta cũng nên theo đó mà phản chiếu kịp thời như
-tấm gương, không nên chần chừ do dự.
+"Thệ giả như tư phù, bất xả trú dạ." Cuộc sống cứ cuồn cuộn trôi đi như nước
+chảy dưới chân cầu; Luôn luôn biến đổi trong từng sát-na, chứ đừng nói là trong 
+từng giây phút. Tâm trí của ta cũng nên theo đó mà phản chiếu kịp thời như tấm 
+gương, không nên chần chừ do dự.
 
 Cái trí tuệ thực sự, nằm ngay giữa tâm trí ta và sự vật. Vì thế, nó được gọi là
 "trực giác", có nghĩa là "đi thẳng vào", không thông qua một cặp kính trung gian
