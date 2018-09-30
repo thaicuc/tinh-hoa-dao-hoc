@@ -19,7 +19,7 @@ cái gì đi ra mà không có trở về). Cho nên cái gọi là biến độ
 tới ngày, luân phiên thay đổi lẫn nhau. "Vãng lai" là một đi một về, và vì thế 
 cũng nói nên cái Đạo tụ tán: Dương thì tán (đi ra), Âm thì tụ (đi về), Dương thì 
 Động, Âm thì Tịnh, cho nên học Đạo là trở về cõi Tịnh, cái Tịnh Tuyệt Đối (Hư 
-vô), Hư cực tịnh đốc.
+vô). "Hư cực tịnh đốc."
 
 Hư vô gồm nắm tất cả mọi mâu thuẫn trong Thái hòa, chứ không phải trong tranh
 chấp và thủ tiêu lẫn nhau. Thực hiện được cái Tâm hư là thực hiện được sự an lạc
