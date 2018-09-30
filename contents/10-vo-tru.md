@@ -2,7 +2,7 @@
 
 Muốn cho Tâm mình phản ánh được một cách chính xác hình ảnh chân thực của sự
 vật, sự việc, thì phải biết sử dụng cái Tâm như tấm gương mà Trang Tử đã nói:
-"Chí nhân dụng Tâm nhược kính".
+"Chí nhân dụng Tâm nhược kính."
 
 Sử dụng cái Tâm mình như mặt gương, là thu nhận tất cả, chứ không có sự lựa
 chọn; Nghĩa là không chọn riêng những gì mình ưa thích và loại bỏ một cách triệt
