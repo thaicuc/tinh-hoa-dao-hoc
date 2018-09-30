@@ -12,7 +12,7 @@ xem như là một môn võ công siêu đẳng cũng chính là nhờ biết t�
 thế Hư vô để dụ cho đối phương kiệt lực vì dùng quá nhiều đến ngạnh công. Trong
 khi đó mình cứ giữ quân bình bất động (Vô vi) để cầm vững khí lực hầu nắm phần
 chiến thắng trong phút chót. Đó cũng chính là phép dùng Hư đánh Thực, dùng Nhu
-thắng Cương, dùng Nhược thắng Cường của "phái yếu" mà Lão Tử đã nói đến.
+thắng Cương, dùng Nhược thắng Cường của "phái yếu" mà Lão Tử đã nói.
 
 Áp dụng Hư vô trong nghệ thuật là phép dùng "u mặc", dùng sự khêu gợi hay nói
 bóng; hơn là nói thẳng ra một cách quá rõ ràng và sống sượng. Đời sống là một
