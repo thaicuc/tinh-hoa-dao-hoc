@@ -32,7 +32,7 @@ Vi thuận tương tranh, thị vi tâm bịnh.
 ***\_\_Tăng Xán***
 
 Đem cái mà mình ưa thích,  
-Để chống lại cái không ưa thích,  
+Để chống lại cái mình không ưa thích,  
 Đó là tâm bệnh của con người.
 
 ***
@@ -64,7 +64,7 @@ Tất cả đều phải chết,
 
 Trình Y Xuyên bảo: "Thiên nhân hợp nhất."  
 Nhưng Trình Minh Đạo lại nói: "Còn nói đến hợp nhất là còn chia 2. Phải nói:
-thiên nhân Vi nhất."  
+Thiên nhân Vi nhất."  
 ***\_\_Trích Tống Nguyên Học Án***
 
 ***
