@@ -28,7 +28,7 @@ Bàn về công dụng của Hư vô, Lão Tử nói:
 > Khoét cửa nẻo làm buồng the,  
 > Nhờ chỗ Không mới có được cái Dụng của buồng the.
 
-Văn hào Romain Rolland, nhân bàn đến câu nói trên đây của Lão Tử có viết: "Khi
+Văn hào Romain Rolland, nhân bàn đến câu nói trên đây của Lão Tử, có viết: "Khi
 đọc đến những câu tư tưởng này của Lão Tử, tôi nghĩ ngay đến những giả thuyết 
 mới đây của thiên văn học cho rằng những trung tâm chuyển động của bao nhiêu 
 vũ trụ, chính nằm ngay ở những lỗ hổng to lớn của thái không." (... Je pense 
@@ -41,7 +41,7 @@ vực thẳm. Bởi vậy Lão Tử mới nói: "oa tắc doanh" (窪則盈). C�
 được lấp đầy. Vì Tự Nhiên (tức Đạo Trời) rất cầu toàn và sợ khoảng trống.
 
 Để bổ túc câu trên, Lão Tử nói: "Cái khoảng không trong lòng trời đất giống như
-lòng ống bễ của thợ rèn: càng động, hơi càng ra mạnh." (Thiên địa chi gian kỳ du
+lòng ống bễ của thợ rèn! Càng động, hơi càng ra mạnh." (Thiên địa chi gian kỳ du
 thác thược hồ! Hư nhi bất khuất, động nhi dũ xuất 天地之間其猶橐籥乎虛而不屈動而愈出).
 Cũng giống như sự hô hấp của ta: hít vô cho đầy, rồi thở ra cho hết.
 
@@ -51,10 +51,10 @@ thị phi, vinh nhục...
 
 Trang Tử nói: "Dưới Trời, nước không đâu nhiều hơn biển cả. Đó là nơi muôn sông
 đổ về không bao giờ thôi, mà không hề đầy; rồi nước biển lại chảy vào sông rạch
-không bao giờ ngưng, mà không hề vơi." Ấy cũng chính là để hàm ý cái tâm hư của
+không bao giờ ngưng, mà không hề vơi." Ấy cũng chính là để hàm ý cái Tâm hư của
 người mộ Đạo.
 
-Huyền học Tây phương, trong quyển La Voix du Silence (tiếng nói của Hư vô) có
+Huyền học Tây phương, trong quyển La Voix du Silence (Tiếng nói của Hư vô), có
 câu: "Hãy để lòng mình to rộng như biển cả thu hút tất cả sông rạch vào trong. 
 Sự yên lặng trầm hùng của biển cả luôn luôn bất biến. Nó cảm thấy không lưng 
 vơi." (Sois comme l’Ocean qui recoit tous les ruisseaux et toutes les rivières. 
@@ -62,7 +62,7 @@ Le puissant calme de l’Ocean reste immuable, il ne les sent pas)
 
 Ở quẻ Hàm 咸 trong Kinh dịch, lời Tượng có câu: "Sơn thượng hữu trạch. Hàm, quân
 tử dĩ hư thụ nhân." 山上有澤咸君子以虚受人. Trên núi mà có chầm nước là nhờ có cái
-"lòng trống không". Chỉ người nào thực hiện được tấm lòng "hư không" ấy; không
+"lòng trống không". Chỉ người nào thực hiện được tấm lòng "hư không" ấy, không
 chấp chứa thành kiến nhị nguyên, không phân chia thiện ác, thị phi, vinh nhục...
 thì mới có thể dung nạp được vạn vật.
 
