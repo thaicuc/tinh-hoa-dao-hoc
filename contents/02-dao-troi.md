@@ -3,7 +3,7 @@
 Để cụ thể hóa Đạo (tức luật quân bình), Lão Tử đã dùng rất khéo hình ảnh cây
 cung được giương lên: “Thiên chi đạo, kỳ du trương cung dư; cao giả ức chi, hạ
 giả cử chi, hữu dư giả tổn chi, bất túc giả bổ chi. Thiên chi đạo: tổn hữu dư,
-bổ bất túc”. 天之道其猶張弓舆高者抑之下者舉之有餘者損之不足者補之天之道損有餘補不足
+bổ bất túc.” 天之道其猶張弓舆高者抑之下者舉之有餘者損之不足者補之天之道損有餘補不足
 
 Đạo Trời ư? Có khác nào cây cung? Khi kéo căng thì bị giằng lại, khi nhấn trùng
 thì bị đẩy giãn ra, có dư thì bớt đi, không đủ thì bù vào. Đạo Trời là bớt chỗ
