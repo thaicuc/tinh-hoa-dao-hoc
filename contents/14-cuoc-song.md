@@ -19,7 +19,7 @@ Con người là một cái gì Vô tận (Hư vô), và Cuộc sống cũng Vô
 ứng"; Đó là hành động của bậc Giác ngộ.
 
 Cuộc sống là một sự thiên diễn luôn luôn đổi mới: "Nhật tân chi vị thịnh đức,
-sinh sinh chi vị dịch". Mỗi một sự vật, sự việc luôn luôn đổi mới. Trong mỗi sự
+sinh sinh chi vị dịch." Mỗi một sự vật, sự việc luôn luôn đổi mới. Trong mỗi sự
 việc xảy ra, không bao giờ có sự lặp lại của những cái đã qua. Có nên hay không,
 khi để cho giữa tâm trí của ta và những giây phút hiện tại có thêm một kẽ hở
 dành cho cái gọi là quá khứ hay thành kiến xen vào làm vách ngăn?
