@@ -58,6 +58,6 @@ của nó là kích thích trí tò mò, sự tìm hiểu ẩn ý của người
 phóng được những tiềm lực sâu thẳm trong lòng người đọc. Không khác nào ánh sáng
 Thái dương giúp cho trăm hoa đua nở.
 
-Nhưng! "Cây nào trổ hoa nấy!"
+Nhưng! "Cây nào trổ hoa nấy."
 
 [7. Vô Tận &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/contents/07-vo-tan.md)
