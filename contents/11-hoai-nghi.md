@@ -50,9 +50,9 @@ sức chân thành: "Thành giả, Thánh nhi dĩ hĩ." 誠者聖而已矣
 
 Được thế, lâu ngày, ta sẽ mất dần cái gọi là bản ngã chứa đầy thành kiến (quá 
 khứ) để tâm hồn có thể hòa nhập vào vạn vật. Như vậy mới có thể "dĩ bách tánh
-tâm vi tâm", lần hồi đi đến tâm trạng của kẻ đã huyền đồng cùng vũ trụ; Mới có
-thể cảm ngộ được cái được gọi là "Ngô tâm tiện thị vũ trụ, vũ trụ tiện thị ngô
-tâm".
+tâm vi tâm", lần hồi mà đi đến tâm trạng của kẻ đã huyền đồng cùng vũ trụ; Mới 
+có thể cảm ngộ được cái được gọi là "Ngô tâm tiện thị vũ trụ, vũ trụ tiện thị 
+ngô tâm."
 
 Sự biết mình phải là công việc cần làm đầu tiên, vì Đạo không đâu xa, Đạo ở nơi
 mình. Phải quan sát chính cái con người của mình mà đừng phê bình, đừng lên án,
@@ -83,7 +83,7 @@ luận viển vông, rồi lại đổ lỗi về cho tôi. Vậy thà nên im l
 nhau những điều lầm lẫn."
 
 Lời nói vừa thốt ra khỏi cửa miệng, nếu bắt theo không kịp, nó lại trở thành quá
-khứ. Bởi vậy, mới có nói: "Học Phật, phải biết kinh Phật, rồi xé kinh Phật". Nếu
+khứ. Bởi vậy, mới có nói: "Học Phật, phải biết kinh Phật, rồi xé kinh Phật." Nếu
 còn lưu giữ lại những dấu chân của quá khứ nơi tâm mình, thì chưa phải là người
 thiện Đạo như Lão Tử đã nói: "Thiện hành vô triệt ích." 善行無轍迹.
 
