@@ -35,8 +35,9 @@ ra mà nói không hết lời, mới ngấm ngầm nuôi dưỡng được giá
 que l’on n’y peut pas dire, tout ce que l’on voudrait y dire, qui l’alimente
 sourdement).
 
-Jean Cocteau cũng nói: "Quyển sách hay là quyển sách gieo rắc đầy những dấu chấm
-hỏi." (Un beau livre, c’est celui qui sème à foison les points d’interrogation).
+Jean Cocteau cũng nói: "Quyển sách hay, là quyển sách gieo rắc đầy những dấu 
+chấm hỏi." (Un beau livre, c’est celui qui sème à foison les points 
+d’interrogation).
 
 Một học giả Tây phương rất uyên thâm về Đạo học Đông phương có khuyên những
 người Tây phương duy lý, phép đọc sách về Đạo học Đông phương và nhất là sách
