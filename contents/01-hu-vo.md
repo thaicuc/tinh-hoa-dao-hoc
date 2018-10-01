@@ -62,7 +62,7 @@ Le puissant calme de l’Ocean reste immuable, il ne les sent pas)
 
 Ở quẻ Hàm 咸 trong Kinh dịch, lời Tượng có câu: "Sơn thượng hữu trạch. Hàm, quân
 tử dĩ hư thụ nhân." 山上有澤咸君子以虚受人. Trên núi mà có chầm nước là nhờ có cái
-"lòng trống không". Chỉ người nào thực hiện được tấm lòng "hư không" ấy, không
+lòng "trống không". Chỉ người nào thực hiện được tấm lòng "hư không" ấy, không
 chấp chứa thành kiến nhị nguyên, không phân chia thiện ác, thị phi, vinh nhục...
 thì mới có thể dung nạp được vạn vật.
 
