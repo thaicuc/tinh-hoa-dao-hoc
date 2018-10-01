@@ -15,7 +15,7 @@ mà không hiểu Dịch cũng là Bất Biến, và chính cái Bất Biến ch
 Tịnh là chủ của cái Động. Hay nói một cách khác, chính cái luật quân bình bất
 biến (hư cực tịnh đốc) ấy, chỉ huy tất cả mọi biến động trên cõi sắc tướng này.
 Thấy Tịnh mà cho là Tịnh, hoàn toàn Tịnh; cũng như thấy Động mà cho là Động,
-hoàn toàn Động chỉ là thị kiến méo mó và vụn vặt phiến diện (vision déformée et
+hoàn toàn Động; chỉ là thị kiến méo mó và vụn vặt phiến diện (vision déformée et
 fragmentaire) của nhị nguyên luận, chứ không phải là thị kiến viên mãn của Hư vô
 của nhất nguyên lưỡng cực động.
 
