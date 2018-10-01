@@ -4,7 +4,7 @@ Trong bất cứ ngành hoạt động nào, người Đông phương nhất ngu
 dụng cái Hư vô, đều công nhận cái hiệu quả vô cùng kì diệu của nó.
 
 Ngay trong phép tranh đấu của các môn kiếm thuật hay quyền thuật cũng có thể áp
-dụng phép Hư vô một cách hết sức hiệu quả bằng chiến thuật "Bất tranh nhi thiện
+dụng phép Hư vô một cách hết sức hiệu quả bằng chiến thuật "bất tranh nhi thiện
 thắng" của Lão Tử.
 
 Sở dĩ thuật tự vệ của Nhật Bản thường được gọi là Nhu Thuật (hay Nhu Đạo), được
@@ -18,16 +18,16 @@ thắng Cương, dùng Nhược thắng Cường của "phái yếu" mà Lão T�
 bóng; hơn là nói thẳng ra một cách quá rõ ràng và sống sượng. Đời sống là một
 cuộc "hằng chuyển như bộc lưu", cái gì đã qua là qua hẳn. Danh từ lại thuộc về
 Tịnh giới (hay giới nhị nguyên) không làm sao nói lên được cái chân lý tuyệt
-đối: vừa Thị vừa Phi, vừa Thiện vừa Ác, vừa Sinh vừa Tử. Vì vậy nên Huệ Thi mới
+đối, vừa Thị vừa Phi, vừa Thiện vừa Ác, vừa Sinh vừa Tử. Vì vậy nên Huệ Thi mới
 viết: "Vật, phương sinh phương tử."
 
-Dùng lời nói hữu hạn không sao miêu tả được cái Chân lý: vừa Hằng vừa Chuyển,
-vừa Tịnh vừa Động, vừa Bất dịch lại vừa Dịch. Bởi vậy, dùng Hư không trong nghệ
-thuật thượng thừa của Đông phương là phép dùng "khoảng lặng" để biểu diễn cái
-"ngôn vô ngôn" (thoại không dùng lời) của Lão Tử. Nghĩa là nói mà như không nói,
-không nói mà nói rất rõ ràng. Ngày xưa, Như Lai sau 49 năm thuyết pháp, cuối
-cùng lại nói: "Ta chưa từng nói một lời nào." Đó cũng chính là phép "thính hồ vô
-thinh" của Trang Tử trong Nam Hoa Kinh.
+Dùng lời nói hữu hạn không sao miêu tả được cái Chân lý vừa Hằng vừa Chuyển, vừa 
+Tịnh vừa Động, vừa Bất dịch lại vừa Dịch. Bởi vậy, dùng Hư không trong nghệ thuật 
+thượng thừa của Đông phương là phép dùng "khoảng lặng" để biểu diễn cái "ngôn vô 
+ngôn" (thoại không dùng lời) của Lão Tử. Nghĩa là nói mà như không nói, không nói 
+mà nói rất rõ ràng. Ngày xưa, Như Lai sau 49 năm thuyết pháp, cuối cùng lại nói: 
+"Ta chưa từng nói một lời nào." Đó cũng chính là phép "thính hồ vô thinh" của 
+Trang Tử trong Nam Hoa Kinh.
 
 Văn nghệ phẩm thượng đẳng của phương Đông, vì vậy, phần nói lên bằng lời không
 phải là phần chính yếu; Phần chính yếu lại là phần không tài nào diễn tả rõ ràng
