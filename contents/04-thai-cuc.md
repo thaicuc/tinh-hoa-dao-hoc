@@ -12,14 +12,14 @@ vật nào rồi cũng quay trở về cội rễ của nó. Trở về cội r�
 gọi là Phục mạng. Trở về với Mạng, nên gọi là Thường. Biết rõ đạo Thường là 
 sáng; không tỏ đạo Thường là liều làm hung gây họa.
 
-Ở quẻ Thái trong Kinh dịch, lời Tượng có viết: "Vô vãng bất phục" (không có một 
-cái gì đi ra mà không có trở về). Cho nên cái gọi là biến động chỉ là một việc 
+Ở quẻ Thái trong Kinh dịch, lời Tượng có viết: "Vô vãng bất phục". Không có một 
+cái gì đi ra mà không có trở về. Cho nên cái gọi là biến động chỉ là một việc 
 đi đi về về vô cùng vô tận: "vãng lai bất cùng vị chi thông". Lại cũng nói: 
 "Nhất âm, nhất dương chi vị Đạo" nghĩa là hết ngày thì tới đêm, hết đêm rồi lại 
 tới ngày, luân phiên thay đổi lẫn nhau. "Vãng lai" là một đi một về, và vì thế 
-cũng nói nên cái Đạo tụ tán: Dương thì tán (đi ra), Âm thì tụ (đi về), Dương thì 
-Động, Âm thì Tịnh, cho nên học Đạo là trở về cõi Tịnh, cái Tịnh Tuyệt Đối (Hư 
-vô). "Hư cực tịnh đốc."
+cũng nói nên cái Đạo Âm Dương tụ tán: Dương thì tán (đi ra), Âm thì tụ (đi về), 
+Dương thì Động, Âm thì Tịnh. Vậy cho nên học Đạo là trở về cõi Tịnh, cái Tịnh 
+Tuyệt Đối (Hư vô). "Hư cực tịnh đốc."
 
 Hư vô gồm nắm tất cả mọi mâu thuẫn trong Thái hòa, chứ không phải trong tranh
 chấp và thủ tiêu lẫn nhau. Thực hiện được cái Tâm hư là thực hiện được sự an lạc
