@@ -12,33 +12,33 @@ vật nào rồi cũng quay trở về cội rễ của nó. Trở về cội r�
 gọi là Phục mạng. Trở về với Mạng, nên gọi là Thường. Biết rõ đạo Thường là 
 sáng; không tỏ đạo Thường là liều làm hung gây họa.
 
-Ở quẻ Thái trong Kinh dịch, lời Tượng có viết: "Vô vãng bất phục". Không có một 
+Ở quẻ Thái trong Kinh dịch, lời Tượng có câu: "Vô vãng bất phục." Không có một 
 cái gì đi ra mà không có trở về. Cho nên cái gọi là biến động chỉ là một việc 
-đi đi về về vô cùng vô tận: "vãng lai bất cùng vị chi thông". Lại cũng nói: 
-"Nhất âm, nhất dương chi vị Đạo" nghĩa là hết ngày thì tới đêm, hết đêm rồi lại 
-tới ngày, luân phiên thay đổi lẫn nhau. "Vãng lai" là một đi một về, và vì thế 
-cũng nói nên cái Đạo Âm Dương tụ tán: Dương thì tán (đi ra), Âm thì tụ (đi về), 
-Dương thì Động, Âm thì Tịnh. Vậy cho nên học Đạo là trở về cõi Tịnh, cái Tịnh 
-Tuyệt Đối (Hư vô). "Hư cực tịnh đốc."
+đi đi về về vô cùng vô tận: "Vãng lai bất cùng vị chi thông." Lại cũng nói: 
+"Nhất âm, nhất dương chi vị Đạo." Nghĩa là hết ngày thì tới đêm, hết đêm rồi 
+lại tới ngày, luân phiên thay đổi lẫn nhau. "Vãng lai" là một đi một về, và vì 
+thế cũng nói nên cái Đạo Âm Dương tụ tán: Dương thì tán (đi ra), Âm thì tụ (đi 
+về), Dương thì Động, Âm thì Tịnh. Vậy cho nên học Đạo là trở về cõi Tịnh, cái 
+Tịnh Tuyệt Đối (Hư vô). "Hư cực tịnh đốc."
 
 Hư vô gồm nắm tất cả mọi mâu thuẫn trong Thái hòa, chứ không phải trong tranh
-chấp và thủ tiêu lẫn nhau. Thực hiện được cái Tâm hư là thực hiện được sự an lạc
-của tâm hồn thanh tịnh giữa cõi đời ồn ào náo nhiệt.
+chấp và thủ tiêu lẫn nhau. Thực hiện được cái Tâm hư là thực hiện được sự an 
+lạc của tâm hồn thanh tịnh giữa cõi đời ồn ào náo nhiệt.
 
-Có hiểu được 2 chữ Hư vô mới hiểu rõ được tại sao cái Sinh nằm trong cái Tử, cái
-Tử nằm trong cái Sinh, cái Chân nằm trong cái Giả, cái Giả nằm trong cái Chân,
-cái Hư nằm trong cái Thực, cái Thực nằm trong cái Hư, cái Phúc nằm trong cái
-Họa, cái Họa nằm trong cái Phúc, cái Loạn nằm trong cái Trị, cái Trị nằm trong
-cái Loạn... Hay nói một cách khác, theo Kinh Dịch: "Âm trung hữu Dương căn,
-Dương trung hữu Âm căn." 陰中有陽根陽中有陰根.
+Có hiểu được 2 chữ Hư vô mới hiểu rõ được tại sao cái Sinh nằm trong cái Tử, 
+cái Tử nằm trong cái Sinh, cái Chân nằm trong cái Giả, cái Giả nằm trong cái 
+Chân, cái Hư nằm trong cái Thực, cái Thực nằm trong cái Hư, cái Phúc nằm trong 
+cái Họa, cái Họa nằm trong cái Phúc, cái Loạn nằm trong cái Trị, cái Trị nằm 
+trong cái Loạn... Hay nói một cách khác, theo Kinh Dịch: "Âm trung hữu Dương 
+căn, Dương trung hữu Âm căn." 陰中有陽根陽中有陰根.
 
 Trang Tử nói có được cái nhìn đó là người có Vương đức. Vương đức là Đức của
-Chân nhân... "nghe rõ được trong chốn vô minh, thấy rõ được trong chốn mờ mờ"
-nghĩa là nghe thấy được trong những chỗ gọi là vô thanh vô sắc. Trong chốn mờ
-mờ của vô sắc, họ thấy rõ cái ánh sáng của Đạo, trong chốn im lìm của vô thanh,
-họ thấy rõ cái nhạc điệu Thái hòa của tất cả mọi cuộc xung đột và mâu thuẫn trên
-đời. Hay nói một cách khác, họ là người thấy được rất rõ trong Âm có Dương,
-trong Dương có Âm. 王德視乎冥冥聽乎無聲冥冥之中獨 獨 見曉焉.
+Chân nhân. "... Nghe rõ được trong chốn vô minh, thấy rõ được trong chốn mờ 
+mờ." Nghĩa là nghe thấy được trong những chỗ gọi là vô thanh vô sắc. Trong chốn 
+mờ mờ của vô sắc, họ thấy rõ cái ánh sáng của Đạo, trong chốn im lìm của vô 
+thanh, họ thấy rõ cái nhạc điệu Thái hòa của tất cả mọi cuộc xung đột và mâu 
+thuẫn trên đời. Hay nói một cách khác, họ là người thấy được rất rõ trong Âm có 
+Dương, trong Dương có Âm. 王德視乎冥冥聽乎無聲冥冥之中獨 獨 見曉焉.
 
 Đạo học Tây phương có câu: "Trong chốn tĩnh lặng có một âm thanh, trong âm thanh
 đó có một tiếng nói. Đó là tiếng nói của sự tĩnh lặng." (Au sein du SILENCE, il
@@ -53,7 +53,7 @@ lương". Toàn thể Chu dịch chỉ nói đi nói lại có một điểm ch�
 
 Như đã nói, Dịch có nghĩa là Biến nhưng cũng có nghĩa là Bất biến, hay Biến 
 trong Bất biến, Động trong Tịnh. Và như ta đã thấy trước đây, Tịnh là gốc của 
-Động. Người đắc Đạo, vì thế, là người biết: "Dĩ bất biến ứng vạn biến." 
+Động. Người đắc Đạo, vì thế, là người biết "dĩ bất biến ứng vạn biến" 
 以不變應萬變, lấy cái Tâm hư mà đối phó với vạn biến.
 
 Thay vì nói đến 2 chữ Hư vô, Dịch là Trung Chánh. Nhờ nó mà có thể khiến cho 
@@ -64,22 +64,23 @@ Chánh mà đứng vững được rồi thì vạn biến mới được hanh t
 Chữ Chánh ở đây không phải là Chánh đối với Tà, mà để ám chỉ Hư vô, chỗ gặp gỡ
 điều hòa của Âm-Dương, Thị-Phi, Thiện-Ác... Vương Bật nói: "Từ chỗ biến mà biết
 được chỗ bất biến thì mới có thể bàn đến sự học dịch."
-自其變者而能知不易 之方 然後可以言易矣. Hay nói một cách khác: Học Dịch mà không
+自其變者而能知不易 之方 然後可以言易矣. Hay nói một cách khác, học Dịch mà không
 hiểu rõ được cái Bất biến trong cái Biến thì sẽ không bao giờ hiểu được Dịch.
 
-Chỗ mà trước đây gọi là "bất dịch phương" Trang Tử gọi là "Đạo xu" (Cốt Đạo) hay 
-"thiên quân". Ông bảo: "đắc kỳ hoàn Trung dĩ ứng vô cùng" nghĩa là phải đứng 
-vững ở chính giữa cái vòng tròn để giữ mức quân bình của Đạo. "Cao quá thì ép 
-xuống, thấp quá thì nâng cao, có thừa thì bớt đi, không đủ thì thêm vào."
+Chỗ mà trước đây gọi là "bất dịch phương", Trang Tử gọi là "Đạo xu" (Cốt Đạo) 
+hay "thiên quân". Ông bảo: "Đắc kỳ hoàn Trung dĩ ứng vô cùng." nghĩa là phải 
+đứng vững ở chính giữa cái vòng tròn để giữ mức quân bình của Đạo. "Cao quá 
+thì ép xuống, thấp quá thì nâng cao, có thừa thì bớt đi, không đủ thì thêm 
+vào."
 
 Đạo Trung Chánh thường bị hiểu rất sai lầm, khiến con người ta trở thành ba
 phải, nhút nhát, rụt rè. Người đi con người Trung Đạo có khi thiên tả, có khi
 thiên hữu, có khi phải tiến, có khi phải thôi, có khi phải giữ cho còn, có khi
 phải làm cho mất... để giữ được điểm Trung Chánh của Đạo. Chính là chỗ mà Dịch
-kinh nói: "Tri tiến thoái, tồn vong chi đạo nhi bất nhất kỳ Chánh dã. Kỳ duy
+Kinh nói: "Tri tiến thoái, tồn vong chi đạo nhi bất nhất kỳ Chánh dã. Kỳ duy
 Thánh nhân hồ!" 其唯聖人乎知進退存亡之道而不失其正者其唯聖人乎. Biết lúc tiến mà 
 tiến, lúc thối mà thối; Biết lúc phải giữ cho còn mà giữ, lúc phải bỏ mà bỏ; 
-Nhưng không bao giờ mất Trung Chánh, ôi chỉ có bậc Thánh nhân thôi sao!
+Nhưng không bao giờ mất Trung Chánh. Ôi, chỉ có bậc Thánh nhân thôi sao!
 
 Nhà văn Tây phương, Gustave Thibon, cũng đồng một lập trường như trên, khi ông
 tuyên bố: "... Sự lầm lạc thứ hai là cho rằng có một sự tranh chấp dứt khoát
@@ -109,9 +110,9 @@ avons déjà pris parti depuis toujours pour le CENTRE DE GRAVITÉ de l’édifi
 
 Tóm lại, phàm đã nói đến quân bình là nói đến sự bình đẳng và đồng đẳng của 2
 nguyên lý Âm và Dương. Tinh hoa của Dịch lý nằm trong đồ Thái cực, đó là luật
-"Âm trung hữu Dương căn, Dương trung hữu Âm căn." Đây thể xem là căn bản của 
+"Âm trung hữu Dương căn, Dương trung hữu Âm căn." Đây có thể xem là căn bản của 
 vạn biến, mà Lão Tử đã nêu lên một cách cụ thể: "Họa hề Phúc chi sở ỷ, Phúc hề 
-Họa chi sở Phục." 禍兮福之所倚, 福兮禍之所伏.
+Họa chi sở phục." 禍兮福之所倚, 福兮禍之所伏.
 
 Việc trong thiên hạ, mầm họa đâu phải sinh ra trong lúc loạn ly, mà dễ thường
 sinh ra trong những lúc thái bình thạnh trị. Hoạ đâu phải sinh ra trong cơn họa
