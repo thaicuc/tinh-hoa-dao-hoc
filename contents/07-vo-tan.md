@@ -30,7 +30,7 @@ của Vũ Trụ.
 
 Màu đen đậm nhạt trên tờ giấy trắng tượng trưng cho sự gắn bó của Âm Dương làm
 nổi bật lẫn nhau như Lão Tử vẫn nói: "Vạn vật phụ âm nhi bảo dương, xung khí dĩ
-vi hòa". Vạn vật trong trời đất, không vật nào là không cõng dương và bồng âm,
+vi hòa." Vạn vật trong trời đất, không vật nào là không cõng dương và bồng âm,
 nhờ cái khí của Hư vô mà điều hòa với nhau.
 
 "Xung khí", hay cái khí của Hư vô (le souffle du Vide), ở hội họa là cái Thần
