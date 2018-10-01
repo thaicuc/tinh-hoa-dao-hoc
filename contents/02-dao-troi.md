@@ -30,15 +30,15 @@ quấy, ưa vinh ghét nhục, ưa sướng ghét khổ, ưa sáng ghét tối..
 
 Tăng Xán, tổ thứ 3 của nhà Thiền, trong Tín Tâm Minh, có ghi rất rõ ràng thế nào
 là Đạo giải thoát, cứu cánh của đời người theo Đạo: "Chí Đạo vô nan, duy hiềm
-giản trạch, đản mặc tắng ái, đỗng nhiên minh bạch" 至道無難 唯嫌揀擇 但莫繒爱
+giản trạch, đản mặc tắng ái, đỗng nhiên minh bạch." 至道無難 唯嫌揀擇 但莫繒爱
 洞然明白. Đạo, không có gì khó, chỉ đừng chọn lựa, quý hồ đừng ưa ghét, thì tự
 nhiên tâm sẽ sáng tỏ.
 
 Hư vô là nơi đã giải quyết được tất cả mọi tranh chấp mâu thuẫn trên đời. Maryse
 Choisy đã nói lên cái chân lý nhất nguyên này một cách thi vị như sau: "Toàn thể
-vũ trụ chỉ là một bãi chiến trường, trong đó trỗi lên một bản tình ca bất tận"
+vũ trụ chỉ là một bãi chiến trường, trong đó trỗi lên một bản tình ca bất tận."
 (L’Univers tout entier n’est qu’un champ de bataille sur lequel monte un chan
-D’Amour eternel). Nói "vũ trụ là bãi chiến trường" là ám chỉ sự đối lập của Âm
+D’Amour eternel) Nói "vũ trụ là bãi chiến trường" là ám chỉ sự đối lập của Âm
 Dương; Nói "bản tình ca bất tận" là nói về sự hài hòa của Dịch; Biểu tượng cho
 hai lẽ Ghét và Thương, hoặc cùng không tồn tại, hoặc một khi đã xuất hiện thì
 luôn luôn đi đôi với nhau không thể tách rời; Không thể nào có cái này tồn tại 
