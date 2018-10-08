@@ -73,7 +73,7 @@ hay "thiên quân". Ông bảo: "Đắc kỳ hoàn Trung dĩ ứng vô cùng." N
 thì ép xuống, thấp quá thì nâng cao, có thừa thì bớt đi, không đủ thì thêm 
 vào."
 
-Đạo Trung Chánh thường bị hiểu rất sai lầm, khiến con người ta trở thành ba
+Đạo Trung Chánh thường rất dễ bị hiểu lầm, khiến con người ta trở thành ba 
 phải, nhút nhát, rụt rè. Người đi con người Trung Đạo có khi thiên tả, có khi
 thiên hữu, có khi phải tiến, có khi phải thôi, có khi phải giữ cho còn, có khi
 phải làm cho mất... để giữ được điểm Trung Chánh của Đạo. Chính là chỗ mà Dịch
