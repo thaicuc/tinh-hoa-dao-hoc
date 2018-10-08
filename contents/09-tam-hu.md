@@ -6,8 +6,8 @@ facile si des idées toutes faites ne venaient s’interposer entre nous et les
 choses)
 
 Chánh kiến, theo Đạo học, là nhận thức được sự vật y như nó xảy ra; Chứ không
-phải là nhận thức nó theo lòng ưa ghét của ta và mong nó phải xảy ra như thế
-nào.
+phải là nhận thức nó theo lòng ưa ghét của ta và mong nó phải xảy ra như ý muốn
+chủ quan.
 
 Nói thì dễ; Nhưng để thực hiện được cái Tâm hư đem đối ứng với mọi sự vật, sự
 việc là điều không hề dễ dàng. Vì tâm trí của mỗi người trong chúng ta là một
