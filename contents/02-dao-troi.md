@@ -13,8 +13,8 @@ qua một bên rồi buông tay ra thì nó sẽ dao động quanh cái trục c
 cái trục cân bằng đó, tượng trưng cho Đạo, cũng gọi là Trung Đạo, không có gì
 cả (Hư Vô), không chuyển động (Tịnh), không làm gì cả (Vô vi); Nhưng kỳ thực nó 
 lại là động cơ chính của tất cả mọi biến động trên đời. Vậy nên mới nói: "Đạo 
-vô vi nhi bất vô vi", nghĩa là thấy thì dường như Đạo bất động, không làm gì 
-cả, mà sự thực không một việc gì không do nó mà ra (nhi bất vô vi). 道無爲而無不爲
+vô vi nhi bất vô vi." 道無爲而無不爲. Nghĩa là thấy thì dường như Đạo bất động, 
+không làm gì cả, mà sự thực không một việc gì không do nó mà ra.
 
 Chính cái nơi "hư không" ấy, là nơi thiện ác, trời đất, âm dương chưa bị phân
 tách. Đó là "tâm hư" mà nhà Phật gọi là "bản lai diện mục" hay "chân như Phật
