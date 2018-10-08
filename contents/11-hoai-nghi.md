@@ -46,7 +46,7 @@ thản nhiên không máy động.
 Phải bỏ hết cả sự ưa ghét của người lẫn của ta; Bỏ cả những thành kiến và dư
 luận xung quanh, để nhìn tất cả vạn vật với cặp mắt "bình đẳng đại đồng" của 
 nhà Phật, với cặp mắt "huyền đồng" và "tề vật" của Lão - Trang, một cách hết 
-sức chân thành: "Thành giả, Thánh nhi dĩ hĩ." 誠者聖而已矣
+sức chân thành: "Thành giả, Thánh nhi dĩ hĩ." 誠者聖而已矣.
 
 Được thế, lâu ngày, ta sẽ mất dần cái gọi là bản ngã chứa đầy thành kiến (quá 
 khứ) để tâm hồn có thể hòa nhập vào vạn vật. Như vậy mới có thể "dĩ bách tánh
@@ -70,16 +70,16 @@ không có sự phê bình, không có sự so sánh và đánh giá, không có
 có sự biện minh... tâm hồn mới có thể trở nên trong sáng vì đã thoát khỏi mọi
 bảng giá trị của mọi hệ thống đạo đức nhị nguyên.
 
-Như trước đây đã nói, Tâm hư tuy chấp chứa được tất cả, nhưng rồi cũng chẳng lưu
-giữ gì cả, dù là những khoảnh khắc vui sướng nhất đời người. Tâm hư, vì vậy,
-không còn dính dấp gì đến cái gọi là "quá khứ" nữa. Quá khứ là quá khứ, không có
-ích gì cho hiện tại ta đang sống ngay đây. Thậm chí nó còn là trở ngại cho sự 
-giải phóng toàn diện một con người.
+Như trước đây đã nói, Tâm hư tuy chấp chứa được tất cả, nhưng rồi cũng lại chẳng 
+lưu giữ điều gì, dù là những khoảnh khắc vui sướng nhất đời người. Tâm hư, vì 
+vậy, không còn dính dấp gì đến cái gọi là "quá khứ" nữa. Quá khứ là quá khứ, 
+không có ích gì cho hiện tại ta đang sống ngay đây. Thậm chí nó còn là trở ngại 
+cho sự giải phóng toàn diện một con người.
 
 Một thiền sư, khi được hỏi về Đạo, đã dạy những lời này: "Nói ra không khó,
 nhưng anh cần phải bắt kịp lời nói của tôi ngay khi nó vừa thoát ra khỏi cửa
 miệng. Được như vậy, là đã gần với Đạo rồi. Bằng không, sau đó anh sẽ đâm ra suy
-luận viển vông, rồi lại đổ lỗi về cho tôi. Vậy thà nên im lặng, để tránh cho
+luận viển vông, rồi lại đổ lỗi về cho tôi. Nếu vậy thà nên im lặng, để tránh cho
 nhau những điều lầm lẫn."
 
 Lời nói vừa thốt ra khỏi cửa miệng, nếu bắt theo không kịp, nó lại trở thành quá
