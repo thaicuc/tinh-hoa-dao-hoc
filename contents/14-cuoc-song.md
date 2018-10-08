@@ -30,11 +30,11 @@ từng giây phút. Tâm trí của ta cũng nên theo đó mà phản chiếu k
 gương, không nên chần chừ do dự.
 
 Cái trí tuệ thực sự, nằm ngay giữa tâm trí ta và sự vật. Vì thế, nó được gọi là
-"trực giác". Trong đó "trực" có nghĩa là "đi thẳng vào", không thông qua một cặp 
-kính trung gian nào cả. Nói đến những cặp kính trung gian, tôi muốn ám chỉ những 
-gì mà ta đã học được qua sách vở, những giáo điều đã được giáo dục, chủ nghĩa, 
-tôn giáo đúc sẵn thành những khuôn thức, và cả những kinh nghiệm đã biến thành 
-những thành kiến.
+"trực giác", có nghĩa là "đi thẳng vào", không thông qua một cặp kính trung 
+gian nào cả. Nói đến những cặp kính trung gian, tôi muốn ám chỉ những gì mà ta 
+đã học được qua sách vở, những giáo điều đã được giáo dục, chủ nghĩa, tôn giáo 
+đúc sẵn thành những khuôn thức, và cả những kinh nghiệm đã biến thành những 
+thành kiến.
 
 Quá khứ (những cái gì ta đã biết) không thể dùng làm khuôn vàng thước ngọc cho
 việc đáp ứng với cuộc sống ngay bây giờ. Cái sống là Vô tận, cho nên đối với
