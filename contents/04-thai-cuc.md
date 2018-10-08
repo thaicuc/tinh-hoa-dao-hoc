@@ -68,7 +68,7 @@ Chữ Chánh ở đây không phải là Chánh đối với Tà, mà để ám 
 hiểu rõ được cái Bất biến trong cái Biến thì sẽ không bao giờ hiểu được Dịch.
 
 Chỗ mà trước đây gọi là "bất dịch phương", Trang Tử gọi là "Đạo xu" (Cốt Đạo) 
-hay "thiên quân". Ông bảo: "Đắc kỳ hoàn Trung dĩ ứng vô cùng." nghĩa là phải 
+hay "thiên quân". Ông bảo: "Đắc kỳ hoàn Trung dĩ ứng vô cùng." Nghĩa là phải 
 đứng vững ở chính giữa cái vòng tròn để giữ mức quân bình của Đạo. "Cao quá 
 thì ép xuống, thấp quá thì nâng cao, có thừa thì bớt đi, không đủ thì thêm 
 vào."
