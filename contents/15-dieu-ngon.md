@@ -99,7 +99,7 @@ bình đẳng ở muôn vật, ở bất cứ nơi đâu. Ở phàm phu không b
 chẳng thêm; Ở phiền não không loạn, ở thiền định chẳng lắng. Cái tánh “bất nhị”
 ấy là tuyệt đối, chẳng đoạn chẳng thường, chẳng đi chẳng đến, chẳng ở trong,
 chẳng ở ngoài, mà cũng chẳng ở giữa, chẳng sinh chẳng diệt, như như chẳng động,
-thường trụ chẳng dời. Đó gọi là Đạo. Nếu muốn biết được chỗ tâm yếu của Thiền,
+thường trụ chẳng rời. Đó gọi là Đạo. Nếu muốn biết được chỗ tâm yếu của Thiền,
 thì Lành Dữ bất tất đừng nghĩ đến, tự nhiên sẽ ngộ nhập được vào tánh thanh
 tịnh của Tâm, tuy vắng lặng linh minh mà diệu dụng vô cùng; đáp ứng với thế sự
 thì vô cùng diệu dụng.  
