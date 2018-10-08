@@ -73,9 +73,9 @@ phục sinh hay không, chính là nằm ở chỗ con người "cũ" phải ch�
 "cũ" ở đây, là con người nhị nguyên, con người kết tinh của quá khứ, con người
 của sách vở, của nhân vi tạo thành, con người của truyền thống lâu đời không
 biến cải, chính là con người "cũ" mà trong sách "Evangile Selon Saint Jean" gọi
-là "le vieil homme": "Kẻ nào không sống lại, không thể thấy được Nước của Chúa"
-(En vérité, je te le dis: si un homme ne nait de nouveau, il ne peut voir le
-Royaume de Dieu). "Nước của Chúa" ở đây, là ám chỉ Đạo.
+là "le vieil homme": "En vérité, je te le dis: si un homme ne nait de nouveau, 
+il ne peut voir le Royaume de Dieu." Kẻ nào không sống lại, không thể thấy được 
+Nước của Chúa. "Nước của Chúa" ở đây, là ám chỉ Đạo.
 
 Quyển sách này đề cập đến "con người mới" ấy. Và bạn đọc, nếu còn thấy bỡ ngỡ
 khi mới bước vào ngưỡng cửa Đạo học Đông phương, nên đọc thêm những quyển "Nhập
