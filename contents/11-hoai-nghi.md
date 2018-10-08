@@ -23,8 +23,8 @@ lại: luân lý, giáo dục, sách vở, học thuyết, tôn giáo, chế đ�
 
 Phải hết sức chú tâm trong từng mảnh mún hành vi, tư tưởng của mình hằng ngày.
 Đừng sống say chết ngủ trên mớ thành kiến của nghìn xưa để lại một cách vô tâm
-nữa. Có được vậy, may ra mới khám phá ra được cái đời sống máy móc không hồn của
-mình.
+nữa. Có được như vậy, may ra mới có thể khám phá ra được cái đời sống máy móc 
+không hồn của mình.
 
 Phải tập cho lòng mình luôn bình thản, vô tư, thanh tịnh; Nghĩa là đừng để cho
 những vấn đề thị phi, vinh nhục đảo điên nơi cõi lòng nữa. Phàm khi thấy ai nói
