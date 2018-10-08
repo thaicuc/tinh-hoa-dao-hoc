@@ -9,10 +9,10 @@ bằng một thái độ lựa chọn, ý niệm ưa ghét.
 
 Cuộc sống, thật sự tự nó cũng đâu có mâu thuẫn, vì mỗi lúc mỗi chứa đựng một
 thiên thu, mà nhà Thiền gọi là "nhất niệm vạn niên" (instant éternel). Vậy nên,
-“chỉ có cái sống trong hiện tại mới là thực mà thôi”. Ngoài ra, cái thời gian
-bị chia thành quá khứ hay vị lai đều là mơ vọng cả. Cuộc sống có mâu thuẫn chăng
-là vì ta đến với nó bằng một ý niệm phân biệt, khen chê, mong cho nó phải như
-thế này mà đừng như thế kia.
+***chỉ có cái sống trong hiện tại mới là thực mà thôi***. Ngoài ra, cái thời 
+gian bị chia thành quá khứ hay vị lai đều là mơ vọng cả. Cuộc sống có mâu thuẫn 
+chăng là vì ta đến với nó bằng một ý niệm phân biệt, khen chê, mong cho nó phải 
+như thế này mà đừng như thế kia.
 
 Con người là một cái gì Vô tận (Hư vô), và Cuộc sống cũng Vô tận. Đem cái Vô tận
 ở bên trong (Tâm hư) để mà ứng với cái Vô tận ở bên ngoài: "Nội ngoại tương
