@@ -20,7 +20,7 @@ sự gì như đã kết liễu. Trái lại, cái gì không cân đối mới 
 cảm giác chưa xong, cái cảm giác có sống." (La Nature ne produit jamais de 
 symétrie. Symétrie est synonyme d’immobilité, de terminaison. Ce qui est
 asymétrique, au contraire, ce qui donne l’impression d’être inachevé est seul
-capable de traduire la Vie).
+capable de traduire la Vie)
 
 Trong xã hội náo loạn của một chế độ Hữu vi cực độ ngày nay, đạo thuyết Vô vi
 của Lão, Trang nói riêng và của Đạo học Đông phương nói chung, ắt phải có sứ
@@ -33,7 +33,7 @@ Lối suy nghĩ một chiều rất dễ sinh ra cuồng tín, và cuồng tín 
 nhất của bất cứ thời đại nào. Như Pascal đã từng nói: "Nguồn gốc của mọi tà
 thuyết là quan niệm cho rằng không bao giờ có sự hòa hợp giữa hai lý lẽ đối
 nghịch nhau." (La source de toute hérésie est de ne pas concevoir l’accord de
-deux vérités opposées et de croire qu’elles sont incompatibles).
+deux vérités opposées et de croire qu’elles sont incompatibles)
 
 Và như thế, muốn trừ bớt được phần nào sự cuồng tín, phải chăng may ra chỉ có
 thứ văn hóa nhất nguyên lưỡng cực động của Đông phương Đạo học và huyền học Tây
