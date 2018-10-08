@@ -9,9 +9,9 @@ s’y attache que temporairement.)
 
 Ông lại nói thêm: "... Thái độ căn bản cần phải có là giải thoát hoàn toàn lòng
 mình khỏi mọi giá trị và vứt bỏ tất cả, chứ không nên chuyển hóa nó theo kiểu
-Nietzsche..." (... attitude radicale à prendre: se délivrer entièrement des
+Nietzsche." (... attitude radicale à prendre: se délivrer entièrement des
 valeurs, les jeter par-dessus bord et non pas transmuer les valeurs à là manière
-de Nietzsche).
+de Nietzsche)
 
 Người thực sự tự do là người không còn bị ràng buộc trong một bảng giá trị nào
 cả. Họ tha hồ hoạt động, như Liệt Tử cưỡi gió mà đi, không phương hướng nhất
