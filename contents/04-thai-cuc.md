@@ -43,7 +43,7 @@ Dương, trong Dương có Âm. 王德視乎冥冥聽乎無聲冥冥之中獨 �
 Đạo học Tây phương có câu: "Trong chốn tĩnh lặng có một âm thanh, trong âm thanh
 đó có một tiếng nói. Đó là tiếng nói của sự tĩnh lặng." (Au sein du SILENCE, il
 est un SON, et au sein de ce Son, il est une VOIX qui parle. C’est la VOIX du
-SILENCE). Lão Tử gọi đó là "ngôn vô ngôn". 言無言.
+SILENCE) Lão Tử gọi đó là "ngôn vô ngôn" 言無言.
 
 Trong Tiên thiên bát quái, Hư vô nằm ngay chỗ gặp gỡ của hai đường kinh vĩ làm
 thành chữ Thập của những quẻ Kiền-Khôn và Ly-Khảm. Tâm hư "trụ" ở ngay chính 
