@@ -14,8 +14,8 @@ gian bị chia thành quá khứ hay vị lai đều là mơ vọng cả. Cuộc
 chăng là vì ta đến với nó bằng một ý niệm phân biệt, khen chê, mong cho nó phải 
 như thế này mà đừng như thế kia.
 
-Con người là một cái gì Vô tận (Hư vô), và Cuộc sống cũng Vô tận. Đem cái Vô tận
-ở bên trong (Tâm hư) để mà ứng với cái Vô tận ở bên ngoài: "Nội ngoại tương
+Con người là một cái gì đó Vô tận (Hư vô), và Cuộc sống cũng Vô tận. Đem cái Vô 
+tận ở bên trong (Tâm hư) để mà ứng với cái Vô tận ở bên ngoài: "Nội ngoại tương
 ứng"; Đó là hành động của bậc Giác ngộ.
 
 Cuộc sống là một sự thiên diễn luôn luôn đổi mới: "Nhật tân chi vị thịnh đức,
