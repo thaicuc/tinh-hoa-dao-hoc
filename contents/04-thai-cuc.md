@@ -54,7 +54,7 @@ lương". Toàn thể Chu dịch chỉ nói đi nói lại có một điểm ch�
 Như đã nói, Dịch có nghĩa là Biến nhưng cũng có nghĩa là Bất biến, hay Biến 
 trong Bất biến, Động trong Tịnh. Và như ta đã thấy trước đây, Tịnh là gốc của 
 Động. Người đắc Đạo, vì thế, là người biết "dĩ bất biến ứng vạn biến" 
-以不變應萬變, lấy cái Tâm hư mà đối phó với vạn biến.
+以不變應萬變, lấy cái Tâm hư mà đối ứng với vạn biến.
 
 Thay vì nói đến 2 chữ Hư vô, Dịch là Trung Chánh. Nhờ nó mà có thể khiến cho 
 những gì bất Trung trở về chỗ Trung, những gì bất Chánh trở về chỗ Chánh. Trung 
