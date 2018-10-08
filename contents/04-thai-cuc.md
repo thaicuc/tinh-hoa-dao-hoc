@@ -56,9 +56,9 @@ trong Bất biến, Động trong Tịnh. Và như ta đã thấy trước đây
 Động. Người đắc Đạo, vì thế, là người biết "dĩ bất biến ứng vạn biến" 
 以不變應萬變, lấy cái Tâm hư mà đối ứng với vạn biến.
 
-Thay vì nói đến 2 chữ Hư vô, Dịch là Trung Chánh. Nhờ nó mà có thể khiến cho 
-những gì bất Trung trở về chỗ Trung, những gì bất Chánh trở về chỗ Chánh. Trung 
-Chánh mà đứng vững được rồi thì vạn biến mới được hanh thông.
+Thay vì nói đến 2 chữ Hư vô, nhà Dịch gọi nó là Trung Chánh. Nhờ nó mà có thể 
+khiến cho những gì bất Trung trở về chỗ Trung, những gì bất Chánh trở về chỗ 
+Chánh. Trung Chánh mà đứng vững được rồi thì vạn biến mới được hanh thông.
 易者何也中正而已矣使天下之不中歸于中使天下之不正歸于正中而萬變通矣.
 
 Chữ Chánh ở đây không phải là Chánh đối với Tà, mà để ám chỉ Hư vô, chỗ gặp gỡ
