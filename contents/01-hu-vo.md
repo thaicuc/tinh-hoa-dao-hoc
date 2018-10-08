@@ -15,8 +15,8 @@ mà không hiểu Dịch cũng là Bất Biến, và chính cái Bất Biến ch
 Tịnh là chủ của cái Động. Hay nói một cách khác, chính cái luật quân bình bất
 biến (hư cực tịnh đốc) ấy, chỉ huy tất cả mọi biến động trên cõi sắc tướng này.
 Thấy Tịnh mà cho là Tịnh, hoàn toàn Tịnh; cũng như thấy Động mà cho là Động,
-hoàn toàn Động; chỉ là thị kiến méo mó và vụn vặt phiến diện (vision déformée et
-fragmentaire) của nhị nguyên luận, chứ không phải là thị kiến viên mãn của Hư vô
+hoàn toàn Động; chỉ là thị kiến méo mó và vụn vặt phiến diện của nhị nguyên luận
+(vision déformée et fragmentaire), chứ không phải là thị kiến viên mãn của Hư vô
 của nhất nguyên lưỡng cực động.
 
 Bàn về công dụng của Hư vô, Lão Tử nói:
@@ -40,17 +40,17 @@ xung quanh, cũng như những vùng nước xoáy mạnh dưới đáy bao gi�
 vực thẳm. Bởi vậy Lão Tử mới nói: "oa tắc doanh" (窪則盈). Cái gì trống không sẽ
 được lấp đầy. Vì Tự Nhiên (tức Đạo Trời) rất cầu toàn và sợ khoảng trống.
 
-Để bổ túc câu trên, Lão Tử nói: "Cái khoảng không trong lòng trời đất giống như
-lòng ống bễ của thợ rèn! Càng động, hơi càng ra mạnh." (Thiên địa chi gian kỳ du
-thác thược hồ! Hư nhi bất khuất, động nhi dũ xuất 天地之間其猶橐籥乎虛而不屈動而愈出).
-Cũng giống như sự hô hấp của ta, hít vô cho đầy, rồi thở ra cho hết.
+Để bổ túc câu trên, Lão Tử nói: "Thiên địa chi gian kỳ du thác thược hồ! Hư nhi 
+bất khuất, động nhi dũ xuất." 天地之間其猶橐籥乎虛而不屈動而愈出. Cái khoảng không 
+trong lòng trời đất giống như lòng ống bễ của thợ rèn! Càng động, hơi càng ra 
+mạnh. Cũng giống như sự hô hấp của ta, hít vô cho đầy, rồi thở ra cho hết.
 
 Cho nên, thực hiện được cái Tâm hư là tạo được cho mình một trung tâm động lực
 thu hút phi thường, có thể chứa đựng tất cả thiên hạ vào trong, bất kể thiện ác,
 thị phi, vinh nhục...
 
 Trang Tử nói: "Dưới Trời, nước không đâu nhiều hơn biển cả. Đó là nơi muôn sông
-đổ về không bao giờ thôi, mà không hề đầy; rồi nước biển lại chảy vào sông rạch
+đổ về không bao giờ thôi, mà không hề đầy; Rồi nước biển lại chảy vào sông rạch
 không bao giờ ngưng, mà không hề vơi." Ấy cũng chính là để hàm ý cái Tâm hư của
 người mộ Đạo.
 
