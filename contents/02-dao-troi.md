@@ -19,7 +19,7 @@ không làm gì cả, mà sự thực không một việc gì không do nó mà 
 Chính cái nơi "hư không" ấy, là nơi thiện ác, trời đất, âm dương chưa bị phân
 tách. Đó là "tâm hư" mà nhà Phật gọi là "bản lai diện mục" hay "chân như Phật
 tánh". Lục tổ Huệ Năng bảo: "Bất tư thiện, bất tư ác, chính dữ ma thời, ná cá
-thị minh, bản lai diện mục" 不思善不思惡正與麽時那箇是明本來面目. Đừng nghĩ Thiện,
+thị minh, bản lai diện mục." 不思善不思惡正與麽時那箇是明本來面目. Đừng nghĩ Thiện,
 đừng nghĩ Ác, chính trong lúc đó mới hiện ra được cái "bản lai diện mục" của
 mình. Nhà Thiền gọi đó là "pháp môn bất nhị", nhà Dịch gọi là Thái cực, nhà Lão
 gọi là Đạo (Hư vô). Người đắc Đạo vì vậy được gọi là người đắc Trung. Và người
