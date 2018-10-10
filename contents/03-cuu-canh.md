@@ -9,8 +9,8 @@ thịnh dương suy" hay "dương thịnh âm suy", thì phải có phận sự 
 lại quân bình, nghĩa là phải làm cái việc của Thiên Đạo: "Thiên chi Đạo, tổn hữu
 dư, bổ bất túc." Vô vi của Lão Tử đâu phải là không làm gì cả, mà là thi hành
 Đạo Trời một cách thản nhiên, vô cầu. Không phải chỉ vô cầu, mà còn "vô tâm"
-như Đạo; Làm một cách hồn nhiên, không hối hả, không bồn chồn, từ từ như trăng
-lên, từ từ như hoa nở, âm thầm, lặng lẽ...
+như Đạo; Làm một cách hồn nhiên, không hối hả, bồn chồn, từ từ như trăng lên, 
+từ từ như hoa nở, âm thầm, lặng lẽ...
 
 Hễ Dương cực thì Âm sinh, mà Âm cực thì Dương sinh; Bĩ cực thì Thái lai, Thái
 cực thì Bĩ lai; Cuộc doanh hư tiêu trưởng là Đạo Thường. Charles Baudoin trong
