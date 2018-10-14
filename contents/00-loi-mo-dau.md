@@ -79,7 +79,7 @@ voir le Royaume de Dieu) "Nước của Chúa" ở đây, là ám chỉ Đạo.
 
 Quyển sách này đề cập đến "con người mới" ấy. Và bạn đọc, nếu còn thấy bỡ ngỡ
 khi mới bước vào ngưỡng cửa Đạo học Đông phương, nên đọc thêm những quyển "Nhập
-môn Triết học Đông phương", "Trang Tử tinh hoa", "Lão Tử tinh hoa" và "Phật học
-tinh hoa"; Bởi vì đây là phần tinh hoa của những bộ sách kia.
+môn Triết học Đông phương", "Trang Tử tinh hoa", "Lão Tử tinh hoa", và "Phật 
+học tinh hoa"; Bởi vì đây là phần tinh hoa của những bộ sách kia.
 
 [1. Hư Vô &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/contents/01-hu-vo.md)
