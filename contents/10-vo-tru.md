@@ -19,7 +19,7 @@ Và rồi sau khi thu nhận tất cả, thì cũng đừng ôm ấp, níu giữ
 Phải giữ cho cái Tâm của mình phẳng lặng như mặt nước hồ thu trong vắt. Những
 đàn cò trắng bay qua đều được hiện rõ trên mặt hồ. Nhưng khi đàn cò bay mất, mặt
 hồ cũng không còn lưu giữ hình ảnh của cái gọi là quá khứ kia, cho dù nó có tốt
-đẹp đến bực nào. Bởi vậy, Trang Tử bảo: "ứng nhi bất tàng". Nhờ không chứa giữ 
+đẹp đến bực nào. Bởi vậy, Trang Tử bảo: "Ứng nhi bất tàng." Nhờ không chứa giữ 
 mà tâm hồn mới luôn được trong sáng như mặt gương không vẩn đục.
 
 Shri Anirvan, vì vậy, đã nói với đệ tử những lời này: "Hãy chấp nhận tất cả... 
