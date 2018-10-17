@@ -15,8 +15,8 @@ chăng là vì ta đến với nó bằng một ý niệm phân biệt, khen ch�
 như thế này mà đừng như thế kia.
 
 Con người là một cái gì đó Vô tận (Hư vô), và Cuộc sống cũng Vô tận. Đem cái Vô 
-tận ở bên trong (Tâm hư) để mà ứng với cái Vô tận ở bên ngoài: "Nội ngoại tương
-ứng"; Đó là hành động của bậc Giác ngộ.
+tận ở bên trong (Tâm hư) để mà đối ứng với cái Vô tận ở bên ngoài: "Nội ngoại 
+tương ứng"; Đó là hành vi của bậc Giác ngộ.
 
 Cuộc sống là một sự thiên diễn luôn luôn đổi mới: "Nhật tân chi vị thịnh đức,
 sinh sinh chi vị dịch." Mỗi một sự vật, sự việc luôn luôn đổi mới. Trong mỗi sự
@@ -30,10 +30,10 @@ từng giây phút. Tâm trí của ta cũng nên theo đó mà phản chiếu k
 gương, không nên chần chừ do dự.
 
 Cái trí tuệ thực sự, nằm ngay giữa tâm trí ta và sự vật. Vì thế, nó được gọi là
-"trực giác", có nghĩa là "đi thẳng vào", không thông qua một cặp kính trung 
-gian nào cả. Nói đến những cặp kính trung gian, tôi muốn ám chỉ những gì mà ta 
-đã học được qua sách vở, những giáo điều đã được giáo dục, chủ nghĩa, tôn giáo 
-đúc sẵn thành những khuôn thức, và cả những kinh nghiệm đã biến thành những 
+trực giác. "Trực" có nghĩa là "đi thẳng vào", không thông qua một cặp kính 
+trung gian nào cả. Nói đến những cặp kính trung gian, tôi muốn ám chỉ những gì 
+mà ta đã học được qua sách vở, những giáo điều đã được giáo dục, chủ nghĩa, tôn 
+giáo đúc sẵn thành những khuôn thức, và cả những kinh nghiệm đã biến thành những 
 thành kiến.
 
 Quá khứ (những cái gì ta đã biết) không thể dùng làm khuôn vàng thước ngọc cho
