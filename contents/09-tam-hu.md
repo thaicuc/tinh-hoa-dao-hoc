@@ -22,8 +22,8 @@ ghét Nhục, ưa Thiện ghét Ác, ưa Thắng ghét Bại, ưa Lợi ghét H�
 để và thiên vị; Trong khi những cặp đối đãi ấy không bao giờ có thể tách rời
 nhau. Sướng với Khổ, Sáng với Tối, Vinh với Nhục, liên đới với nhau một cách 
 hết sức mật thiết như hình với bóng. Bởi vậy, mong Sướng mà không có Khổ, mong 
-Vinh mà không có Nhục, mong Sáng mà không có Tối... nên lòng mới có ưu tư, lo 
-được sợ mất.
+Vinh mà không có Nhục, mong Sáng mà không có Tối... nên trong lòng mới có ưu 
+tư, lo được sợ mất.
 
 Mong được mà chưa được, khổ. Không được, càng khổ hơn.. Nhưng giả sử được rồi,
 mừng chẳng bao lâu đã sinh ra lòng ưu tư sợ mất. Chưa mất, nhưng trong lòng cứ
