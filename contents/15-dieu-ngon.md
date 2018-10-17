@@ -13,7 +13,7 @@ Tịch nhiên bất động;
 Cảm nhi toại thông thiên hạ chi cố.  
 ***\_\_Dịch***
 
-Im lặng không động;  
+Im lặng, không động;  
 Đến lúc cảm, thì suốt được mọi duyên cớ trong thiên hạ.  
 
 ***
@@ -42,7 +42,6 @@ Vô khiếm vô dư.
 Lương do thủ xả,  
 Sở dĩ bất như.  
 ***\_\_Tăng Xán***
-
 
 Tâm hư thì tròn đầy,  
 Không thiếu cũng chẳng dư.  
@@ -101,8 +100,8 @@ chẳng thêm; Ở phiền não không loạn, ở thiền định chẳng lắn
 chẳng ở ngoài, mà cũng chẳng ở giữa, chẳng sinh chẳng diệt, như như chẳng động,
 thường trụ chẳng rời. Đó gọi là Đạo. Nếu muốn biết được chỗ tâm yếu của Thiền,
 thì Lành Dữ bất tất đừng nghĩ đến, tự nhiên sẽ ngộ nhập được vào tánh thanh
-tịnh của Tâm, tuy vắng lặng linh minh mà diệu dụng vô cùng; đáp ứng với thế sự
-thì vô cùng diệu dụng.  
+tịnh của Tâm, tuy vắng lặng linh minh mà diệu dụng; đáp ứng với thế sự thì vô 
+cùng vô tận.  
 ***\_\_Lục tổ Huệ Năng***
 
 ***
@@ -208,5 +207,111 @@ Không giữ lại gì cả nơi lòng mình,
 Thì lấy gì gọi là ký ức.  
 Lòng được Hư không thì tự nhiên trong sáng,  
 Cần gì phải lao tâm nhọc sức.
+
+***
+
+Mê, sinh ái ố,  
+Ngộ, vô hiếu ố.  
+Đắc thất thị phi,  
+Nhất thời phóng khước.  
+***\_\_Tăng Xán***
+
+Mê, thì sinh lòng ưa ghét,  
+Ngộ, thì chẳng ghét chẳng thương.  
+Việc thua được hay thị phi,  
+Hãy nhất thời buông bỏ quách.
+
+***
+
+Tout savoir est dans le passé: il est statique, déjà mort. Mais une chose 
+vivante est toujours changeante, ne cesse de subir des modifications. Elle
+est différente à chaque instant.  
+***\_\_Krishnamurti***
+
+Bất cứ cái gì gọi là kiến thức đều thuộc về quá khứ cả. Nó tịnh, nghĩa là đã 
+chết. Cái sống, trái lại, luôn luôn thay đổi. Nó biến đổi trong từng phút, 
+từng giây, từng khoảnh khắc.
+
+***
+
+Il n’y a de perception totale que lorsque l’esprit est complètement silencieux 
+et vide. On a besoin d’un VIDE... pour observer ... Avoir un scepticisme sain 
+au sujet de ce qu’il pense, de ce qu’il sent, de tout ce qu’il considère 
+important ou insignifiant... Être complètement seul.  
+***\_\_Krishnamurti***
+
+Chỉ khi nào tâm trí ta được hoàn toàn thanh tịnh và hư không, thì sự nhận 
+thức mới được hoàn toàn chân thực. Ta cần phải có cái Tâm "không" mới quan
+sát được. Phải có một tinh thần hoài nghi lành mạnh đối với tất cả những gì 
+ta suy hay cảm, những gì ta cho là quan trọng hay không quan trọng... Phải 
+hoàn toàn độc lập và cô đơn.  
+
+***
+
+“Sống trong hiện tại”, là sống như đang bơi lội trong dòng nước chảy, chứ 
+không phải như đứng nhìn nước đứng chứa trong một cái chai... Cuộc sống là 
+một sự trôi chảy cuồn cuộn không bao giờ ngưng. Bởi vậy, muống sống đáp ứng 
+kịp với những luồng sóng của cuộc đời phải nhìn theo cái động biến của cuộc 
+đời như mình nhìn theo cái động của các lượn sóng... Cặp mắt phải nhìn theo 
+sự di chuyển mau lẹ của dòng nước không bao giờ trở lại: bấy giờ ta đâu còn 
+có thời giờ để mà suy tư giải thích, mà cho rằng cái này hay cái kia dở, 
+hoặc phải chảy như thế này mà đừng chảy như thế kia... Không còn có người 
+đứng nhìn dòng nước chảy, cũng không còn có dòng nước chảy, không có chủ, 
+không có khách. Người và dòng nước chảy là một. Không còn biết có phải là 
+người trôi theo dòng nước hay dòng nước trôi theo người nữa.  
+***\_\_Krishnamurti***
+
+***
+
+Tant qu’on est sous l’influence du passé, on ne peut pas rencontrer le neuf.  
+***\_\_Krishnamurti***
+
+Hễ còn bị ảnh hưởng bởi quá khứ, thì ta sẽ không thể nào gặp được cái mới.
+
+***
+
+Si vous vous dites qu’il n’y a rien de neuf, c’est que vous regardez la vie 
+présente avec des idées préconcues d’hier.  
+***\_\_Krishnamurti***
+
+Nếu ta bảo, đâu có gì mới lạ, ấy là ta nhìn đời với những thành kién đã qua.
+
+***
+
+Nhất kiến bất khả tái kiến.  
+***\_\_Thiền***
+
+Chỉ thấy được một lần, không bao giờ thấy lại được nữa.
+
+***
+
+Cảm đâu ứng đó, ứng đâu hành đó.  
+Đừng quá sớm, cũng đừng quá muộn.  
+***\_\_Thiền***
+
+***
+
+Thật vậy, con người là một cây sậy có tư tưởng. Tuy nhiên, những công trình 
+kỳ diệu nhất của con người lại là những việc làm khi con người không nghĩ suy 
+tính toán gì cả. Cho nên, cần phải trở lại “như đứa trẻ thơ” bằng nhiều năm 
+học để quên mình. Được như vậy, thì con người nghĩ mà không nghĩ. Họ nghĩ như 
+mưa rào trút xuống từ trời cao, như sóng vỗ trùng dương muôn trượng. Họ nghĩ 
+như tinh tú chiếu diệu cảnh trời đêm, như lộc non đâm chồi trong gió bấc. Nói 
+cho đúng hơn, họ là mưa rào, là trùng dương, là tinh tú, là lộc chồi.
+***\_\_Suzuki***
+
+***
+
+Tự do, là ước nguyện của óc nhị nguyên, đứng cạnh cuộc đời.   
+Tự tại mới là chứng nghiệm của Tâm hư hòa đồng với cuộc sống.  
+***\_\_Thiền***
+
+***
+
+Thánh nhân có cái hình của người mà không có cái tình của người. Có cái hình 
+của người nên mới cùng một đàn với người. Không có cái tình của người nên thị 
+phi mới không vào được cõi lòng. Cùng một đàn với người là việc nhỏ. Riêng 
+làm một với Trời mới là việc lớn.
+***\_\_Trang Tử***
 
 [16. Trở Về &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/contents/16-tro-ve.md)
