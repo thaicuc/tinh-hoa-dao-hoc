@@ -13,7 +13,7 @@ Tịch nhiên bất động;
 Cảm nhi toại thông thiên hạ chi cố.  
 ***\_\_Dịch***
 
-Im lặng, không động;  
+Im lặng không động;  
 Đến lúc cảm, thì suốt được mọi duyên cớ trong thiên hạ.  
 
 ***
