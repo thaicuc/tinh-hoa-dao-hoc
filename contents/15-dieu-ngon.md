@@ -297,7 +297,7 @@ tính toán gì cả. Cho nên, cần phải trở lại “như đứa trẻ th
 học để quên mình. Được như vậy, thì con người nghĩ mà không nghĩ. Họ nghĩ như 
 mưa rào trút xuống từ trời cao, như sóng vỗ trùng dương muôn trượng. Họ nghĩ 
 như tinh tú chiếu diệu cảnh trời đêm, như lộc non đâm chồi trong gió bấc. Nói 
-cho đúng hơn, họ là mưa rào, là trùng dương, là tinh tú, là lộc chồi.
+cho đúng hơn, họ là mưa rào, là trùng dương, là tinh tú, là lộc chồi.  
 ***\_\_Suzuki***
 
 ***
@@ -311,7 +311,7 @@ Tự tại mới là chứng nghiệm của Tâm hư hòa đồng với cuộc s
 Thánh nhân có cái hình của người mà không có cái tình của người. Có cái hình 
 của người nên mới cùng một đàn với người. Không có cái tình của người nên thị 
 phi mới không vào được cõi lòng. Cùng một đàn với người là việc nhỏ. Riêng 
-làm một với Trời mới là việc lớn.
+làm một với Trời mới là việc lớn.  
 ***\_\_Trang Tử***
 
 [16. Trở Về &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/contents/16-tro-ve.md)
