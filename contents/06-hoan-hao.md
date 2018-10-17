@@ -33,16 +33,16 @@ của một quyển sách, mà chính những gì không thể nói ra được,
 ra mà nói không hết lời, mới ngấm ngầm nuôi dưỡng được giá trị của quyển sách
 ấy." (Ce n’est pas tout ce qu’on dit qui fait la valeur d’un livre, que tout ce
 que l’on n’y peut pas dire, tout ce que l’on voudrait y dire, qui l’alimente
-sourdement).
+sourdement)
 
 Jean Cocteau cũng nói: "Quyển sách hay, là quyển sách gieo rắc đầy những dấu 
 chấm hỏi." (Un beau livre, c’est celui qui sème à foison les points 
-d’interrogation).
+d’interrogation)
 
 Một học giả Tây phương rất uyên thâm về Đạo học Đông phương có khuyên những
 người Tây phương duy lý, phép đọc sách về Đạo học Đông phương và nhất là sách
 của Lão Tử, những lời này: "Điều quan trọng không phải là ở những gì sách ấy nói
-với ta, mà là ở những gì sách ấy đã khêu gợi được ở nơi ta..."
+với ta, mà là ở những gì sách ấy đã khêu gợi được ở nơi ta."
 
 Thật vậy, sự hiểu biết của người phương Đông là sự hiểu biết do tự mình tìm ra,
 hoặc nhờ bên ngoài khêu gợi mà khải phát. Và chính sự hiểu biết ấy mới là hiểu
