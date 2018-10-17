@@ -54,7 +54,7 @@ lương". Toàn thể Chu dịch chỉ nói đi nói lại có một điểm ch�
 Như đã nói, Dịch có nghĩa là Biến nhưng cũng có nghĩa là Bất biến, hay Biến 
 trong Bất biến, Động trong Tịnh. Và như ta đã thấy trước đây, Tịnh là gốc của 
 Động. Người đắc Đạo, vì thế, là người biết "dĩ bất biến ứng vạn biến" 
-以不變應萬變, lấy cái Tâm hư mà đối ứng với vạn biến.
+以不變應萬變, lấy cái Tâm hư mà đối ứng với vạn sự.
 
 Thay vì nói đến 2 chữ Hư vô, nhà Dịch gọi nó là Trung Chánh. Nhờ nó mà có thể 
 khiến cho những gì bất Trung trở về chỗ Trung, những gì bất Chánh trở về chỗ 
@@ -87,7 +87,7 @@ tuyên bố: "... Sự lầm lạc thứ hai là cho rằng có một sự tranh
 giữa Tả và Hữu trong khi cả hai tương nhập và bổ túc lẫn nhau để giữ gìn sự nhất
 trí của sự sống. Trong thực tế, không có một vị lãnh đạo chân chính nào của nhân
 loại lại thuộc về phái Tả hay phái Hữu một cách tuyệt đối và ***không bao giờ 
-thay đổi***. Tùy nơi, tùy buổi, tùy hoàn cảnh, họ đứng khi bên hữu, khi bên tả 
+thay đổi***. Tùy nơi, tùy buổi, tùy hoàn cảnh, họ đứng khi bên Hữu, khi bên Tả 
 (mà thực sự họ không Tả, không Hữu)..."
 
 "Lúc nào nền tảng xã hội sắp khuynh hẳn về phía Hữu, thì chúng tôi đứng về phía 
