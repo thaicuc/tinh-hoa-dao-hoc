@@ -5,7 +5,7 @@ thì kẻ đó đã là kẻ thủ của Tự do rồi. Kẻ nào yêu Tự do t
 hoặc phủ nhận tất cả mọi giá trị, hoặc tạm thời chấp nhận chúng mà thôi." (Celui
 qui croit fortement en une valeur est par là même un ennemi de la Liberté. Celui
 qui aime par-dessus tout la Liberté, celui-là ou bien nie les valeurs ou bien ne
-s’y attache que temporairement.)
+s’y attache que temporairement)
 
 Ông lại nói thêm: "... Thái độ căn bản cần phải có là giải thoát hoàn toàn lòng
 mình khỏi mọi giá trị và vứt bỏ tất cả, chứ không nên chuyển hóa nó theo kiểu
@@ -31,7 +31,7 @@ mắt như tai, tai như mũi, mũi như miệng, cả thảy đồng nhau. Tâm
 làm một khối, còn hình thể ta thì nhẹ nhàng, thịt xương như sương khói. Ta không
 còn biết lưng ta tựa nơi đâu, chân ta đứng nơi nào. Ta tha hồ bay bổng như cỡi
 gió mà đi khắp chốn, khi Đông khi Tây, không phương hướng nhất định, không khác
-nào chiếc lá bay. Ta không biết có phải là gió cỡi ta, hay ta cỡi gió nữa."
+nào chiếc lá bay. Ta không biết có phải là ta cỡi gió, hay gió cỡi ta nữa."
 
 Chỗ mà Liệt Tử bảo là "không phương hướng nhất định", cũng chính là chỗ mà Trang
 Tử bảo là "vô hà hữu chi hương", nhà Phật gọi là "ưng vô sở trụ". Nghệ thuật
