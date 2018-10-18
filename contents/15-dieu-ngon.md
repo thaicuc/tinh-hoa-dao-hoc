@@ -125,7 +125,7 @@ clarté est résola.
 ***\_\_Krishnamurti***
 
 Sống trong hiện tại một cách đầy đủ, toàn diện, là sống với “hiện hữu”, không
-phê bình lên án cũng không tìm cách biện minh. Tất cả mọi vấn đề, nhìn qua ánh
+phê bình, lên án cũng không tìm cách biện minh. Tất cả mọi vấn đề, nhìn qua ánh
 sáng ấy đều sẽ được giải quyết.
 
 ***
@@ -274,7 +274,7 @@ Si vous vous dites qu’il n’y a rien de neuf, c’est que vous regardez la vi
 présente avec des idées préconcues d’hier.  
 ***\_\_Krishnamurti***
 
-Nếu ta bảo, đâu có gì mới lạ, ấy là ta nhìn đời với những thành kién đã qua.
+Nếu ta bảo, đâu có gì mới lạ, ấy là ta nhìn đời với những thành kiến đã qua.
 
 ***
 
@@ -302,7 +302,7 @@ cho đúng hơn, họ là mưa rào, là trùng dương, là tinh tú, là lộc
 
 ***
 
-Tự do, là ước nguyện của óc nhị nguyên, đứng cạnh cuộc đời.   
+Tự do là ước nguyện của óc nhị nguyên đứng cạnh cuộc đời.   
 Tự tại mới là chứng nghiệm của Tâm hư hòa đồng với cuộc sống.  
 ***\_\_Thiền***
 
