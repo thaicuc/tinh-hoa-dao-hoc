@@ -42,7 +42,7 @@ vực thẳm. Bởi vậy Lão Tử mới nói: "oa tắc doanh" (窪則盈). C�
 
 Để bổ túc câu trên, Lão Tử nói: "Thiên địa chi gian kỳ du thác thược hồ! Hư nhi 
 bất khuất, động nhi dũ xuất." 天地之間其猶橐籥乎虛而不屈動而愈出. Cái khoảng không 
-trong lòng trời đất giống như lòng ống bễ của thợ rèn! Càng động, hơi càng ra 
+trong lòng trời đất giống như lòng ống bễ của thợ rèn! Càng động, hơi ra càng 
 mạnh. Cũng giống như sự hô hấp của ta, hít vô cho đầy, rồi thở ra cho hết.
 
 Cho nên, thực hiện được cái Tâm hư là tạo được cho mình một trung tâm động lực
