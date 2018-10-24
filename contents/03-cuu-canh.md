@@ -4,8 +4,8 @@ Lão Tử nói: "Vạn vật phụ âm nhi bảo dương, xung khí dĩ vi hòa.
 Trời Đất, không vật nào là không cõng âm và bồng dương. Nhờ cái khí của Hư vô 
 mà Âm Dương hòa hợp với nhau. Bởi vậy, Hư vô cũng được gọi là Thái hòa 太和.
 
-Thái cực thì phải gồm cả âm lẫn dương một cách điều hòa. Nhưng nếu thấy "âm
-thịnh dương suy" hay "dương thịnh âm suy", thì phải có phận sự điều chỉnh để lập
+Thái cực thì phải gồm cả Âm lẫn Dương một cách điều hòa. Nhưng nếu thấy "Âm
+thịnh Dương suy" hay "Dương thịnh Âm suy", thì phải có phận sự điều chỉnh để lập
 lại quân bình, nghĩa là phải làm cái việc của Thiên Đạo: "Thiên chi Đạo, tổn hữu
 dư, bổ bất túc." Vô vi của Lão Tử đâu phải là không làm gì cả, mà là thi hành
 Đạo Trời một cách thản nhiên, vô cầu. Không phải chỉ vô cầu, mà còn "vô tâm"
