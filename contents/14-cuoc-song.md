@@ -3,9 +3,9 @@
 Krishnamurti thường nói: "Chỉ có cái sống trong hiện tại, mới có thể gọi là thực
 mà thôi."
 
-Thật vậy, sự vật tự nó đâu có mâu thuẫn, vì mỗi một sự vật đều là một Thái cực,
-một tiềm lực chứa cả Âm lẫn Dương. Mâu thuẫn, có chăng là vì ta đến với sự vật
-bằng một thái độ lựa chọn, ý niệm ưa ghét.
+Thật vậy, sự vật tự nó đâu có mâu thuẫn, vì mỗi một sự vật, sự việc đều là một 
+Thái cực, một tiềm lực chứa cả Âm lẫn Dương. Mâu thuẫn, có chăng là vì ta đến 
+với nó bằng một thái độ lựa chọn, ý niệm ưa ghét.
 
 Cuộc sống, thật sự tự nó cũng đâu có mâu thuẫn, vì mỗi lúc mỗi chứa đựng một
 thiên thu, mà nhà Thiền gọi là "nhất niệm vạn niên" (instant éternel). Vậy nên,
@@ -37,7 +37,7 @@ giáo đúc sẵn thành những khuôn thức, và cả những kinh nghiệm �
 thành kiến.
 
 Quá khứ (những cái gì ta đã biết) không thể dùng làm khuôn vàng thước ngọc cho
-việc đáp ứng với cuộc sống ngay bây giờ. Cái sống là Vô tận, cho nên đối với
+việc đáp ứng với cuộc sống ngay bây giờ. Cái sống là Vô tận; Cho nên đối với
 Đạo, không có cái gì gọi là đúng tuyệt đối cả. Vì vậy nên Phật tổ sau 49 năm
 thuyết pháp, lại nói: "Bấy lâu nay, ta chưa từng nói một lời nào."
 
