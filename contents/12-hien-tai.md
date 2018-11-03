@@ -5,7 +5,7 @@ bình, đừng bênh vực. Chỉ quan sát những gì đang xảy ra. Chỉ đ
 lửa chạy ngang mà đừng bị bực bội vì nó làm phiền mình, hay vì nó đến không phải
 lúc. Chỉ nghe thôi. Hãy quan sát tất cả mọi hành động của mình, từ cách ăn, cách
 nói. Nhưng đừng có ý muốn sửa đổi gì cả. Chỉ nhìn xem một cách khách quan lạnh
-lùng. Và như vậy, anh sẽ trở nên rất nhạy cảm, ... Do sự quan sát tỉ mỉ ấy, quan
+lùng. Và như vậy, anh sẽ trở nên rất nhạy cảm... Do sự quan sát tỉ mỉ ấy, quan
 sát mà không thiên vị, không lựa chọn, không đánh giá, không biện minh, không so
 sánh, không lên án, ta sẽ trở nên vô cùng nhạy cảm và hoạt bát phi thường. Tất
 cả những gì chứa đựng trong tâm trí anh đều sẽ được tẩy sạch và trở thành Hư 
