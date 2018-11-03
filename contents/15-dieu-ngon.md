@@ -150,8 +150,8 @@ le plus souvent celui qui vit loin d’eux.
 ***\_\_Jean Grenier***
 
 Kẻ bắn giỏi hoặc người lội giỏi là những người bắn hoặc lội một cách thản nhiên
-không để ý đến việc bắn hay việc lội của mình, cũng như những người có nhiều
-ảnh hưởng đối với đồng loại thường lại là những người sống cách xa đồng loại.
+mà không để ý đến việc bắn hay việc lội của mình, cũng như những người có nhiều
+ảnh hưởng đối với đồng loại lại thường là những người sống cách xa đồng loại.
 
 ***
 
@@ -253,12 +253,12 @@ không phải như đứng nhìn nước đứng chứa trong một cái chai...
 một sự trôi chảy cuồn cuộn không bao giờ ngưng. Bởi vậy, muống sống đáp ứng 
 kịp với những luồng sóng của cuộc đời phải nhìn theo cái động biến của cuộc 
 đời như mình nhìn theo cái động của các lượn sóng... Cặp mắt phải nhìn theo 
-sự di chuyển mau lẹ của dòng nước không bao giờ trở lại: bấy giờ ta đâu còn 
-có thời giờ để mà suy tư giải thích, mà cho rằng cái này hay cái kia dở, 
-hoặc phải chảy như thế này mà đừng chảy như thế kia... Không còn có người 
-đứng nhìn dòng nước chảy, cũng không còn có dòng nước chảy, không có chủ, 
-không có khách. Người và dòng nước chảy là một. Không còn biết có phải là 
-người trôi theo dòng nước hay dòng nước trôi theo người nữa.  
+sự di chuyển mau lẹ của dòng nước không bao giờ trở lại. Bấy giờ, ta đâu 
+còn có thời giờ để mà suy tư giải thích, mà cho rằng cái này hay cái kia 
+dở, hoặc phải chảy như thế này mà đừng chảy như thế kia... Không còn có 
+người đứng nhìn dòng nước chảy, cũng không còn có dòng nước chảy, không có 
+chủ, không có khách. Người và dòng nước chảy là một. Không còn biết có phải 
+là người trôi theo dòng nước hay dòng nước trôi theo người nữa.  
 ***\_\_Krishnamurti***
 
 ***
