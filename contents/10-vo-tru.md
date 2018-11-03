@@ -32,8 +32,8 @@ Thành ra cái mà mình ghét lại càng ngày càng ăn sâu vào tâm khảm
 chi, tất cố hưng chi." Hòng muốn phế đó, lại làm cho đó hưng lên.
 
 Ưa và Ghét tương liên tương ứng không bao giờ rời nhau. Càng ưa cái mà ta cho là
-tốt đẹp bao nhiêu, thì lại càng ghét cái ta cho là xấu xa bấy nhiêu... Hết sáng
-thì phải đến tối, hết ngày thì phải đến đêm, hết Xuân Hạ thì phải tới Thu
+tốt đẹp bao nhiêu, thì lại càng ghét cái mà ta cho là xấu xa bấy nhiêu... Hết 
+sáng thì phải đến tối, hết ngày thì phải đến đêm, hết Xuân Hạ thì phải tới Thu
 Đông... Có ai lại ngồi nguyền rủa bóng tối và mùa Đông hay không?
 
 Cho nên, Sống là chấp nhận; Chấp nhận một cách thông minh những gì mà lẽ nó phải
