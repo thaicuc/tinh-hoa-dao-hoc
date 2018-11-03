@@ -67,7 +67,7 @@ Chữ Chánh ở đây không phải là Chánh đối với Tà, mà để ám 
 自其變者而能知不易 之方 然後可以言易矣. Hay nói một cách khác, học Dịch mà không
 hiểu rõ được cái Bất biến trong cái Biến thì sẽ không bao giờ hiểu được Dịch.
 
-Chỗ mà trước đây gọi là "bất dịch phương", Trang Tử gọi là "Đạo xu" (Cốt Đạo) 
+Chỗ mà trước đây gọi là "bất dịch phương", Trang Tử gọi là "Đạo xu" (cốt Đạo) 
 hay "thiên quân". Ông bảo: "Đắc kỳ hoàn Trung dĩ ứng vô cùng." Nghĩa là phải 
 đứng vững ở chính giữa cái vòng tròn để giữ mức quân bình của Đạo. "Cao quá 
 thì ép xuống, thấp quá thì nâng cao, có thừa thì bớt đi, không đủ thì thêm 
@@ -91,7 +91,7 @@ thay đổi***. Tùy nơi, tùy buổi, tùy hoàn cảnh, họ đứng khi bên
 (mà thực sự họ không Tả, không Hữu)..."
 
 "Lúc nào nền tảng xã hội sắp khuynh hẳn về phía Hữu, thì chúng tôi đứng về phía 
-Tả để giữ quân bình cũng như lúc nào nền tảng xã hội sắp bị khuynh hẳn về phía 
+Tả để giữ quân bình; Cũng như lúc nào nền tảng xã hội sắp bị khuynh hẳn về phía 
 Tả, thì chúng tôi sẽ đứng về phía Hữu. Với những ai lên án chúng tôi là tương 
 đối, là xu thời và trách chúng tôi không dám có một lập trường dứt khoát nào đối 
 với nhóm Tả hay Hữu, chúng tôi xin tuyên bố rằng chúng tôi đã có một lập trường 
