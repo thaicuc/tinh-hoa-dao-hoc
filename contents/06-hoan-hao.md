@@ -1,9 +1,9 @@
 # 6. Hoàn Hảo
 
-Lão Tử nói: "Bảo thủ Đạo, bất dục doanh." Người ôm ấp Đạo, không bao giờ mong
-muốn được đầy đủ! Là tại sao? Là vì "Oa tắc doanh." 漥則盈. Cái gì còn thiếu sẽ
-được Tự nhiên bù vào cho bằng đầy; Là bởi vì Tự nhiên (tức tạo hóa) rất cầu toàn
-và sợ khoảng trống (hay sự thiếu quân bình).
+Lão Tử nói: "Bảo thủ Đạo, bất dục doanh." Người ôm ấp Đạo trong lòng, không bao 
+giờ mong muốn được đầy đủ! Là tại sao? Là vì "Oa tắc doanh." 漥則盈. Cái gì còn 
+thiếu sẽ được Tự nhiên bù vào cho bằng đầy; Là bởi vì Tự nhiên (tức tạo hóa) rất 
+cầu toàn và sợ khoảng trống (hay sự thiếu quân bình).
 
 Văn chương nghệ thuật thượng đẳng của phương Đông, vì thế, thường chăm chút đến
 những cái gì bất toàn (曲), những cái gì thiếu sót (少), những cái gì cong queo
