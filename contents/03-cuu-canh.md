@@ -1,7 +1,7 @@
 # 3. Cứu Cánh
 
 Lão Tử nói: "Vạn vật phụ âm nhi bảo dương, xung khí dĩ vi hòa." Vạn vật trong
-Trời Đất, không vật nào là không cõng âm và bồng dương. Nhờ cái khí của Hư vô 
+Trời Đất, không vật nào là không cõng Âm và bồng Dương. Nhờ cái khí của Hư vô 
 mà Âm Dương hòa hợp với nhau. Bởi vậy, Hư vô cũng được gọi là Thái hòa 太和.
 
 Thái cực thì phải gồm cả Âm lẫn Dương một cách điều hòa. Nhưng nếu thấy "Âm
