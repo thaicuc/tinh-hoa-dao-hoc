@@ -27,21 +27,21 @@ Chữ "bác" (剝) ở đây là chúng tôi nói đến quẻ Bác trong Kinh D
 đang áp chế một hào Dương cô độc đã sắp tàn lụi và lui vào bóng tối, tượng trưng
 cho một giai cấp thức giả già nua với những tâm trí chứa đầy thành kiến. Nhưng
 sau quẻ Bác là quẻ Phục; Hào Dương ở quẻ Bác đã phục sinh nơi hào sơ ở quẻ Phục:
-"Con người cũ có chết đi, thì mới có thể được phục sinh trở thành con người mới".
+"Con người cũ có chết đi, thì mới có thể được phục sinh trở thành con người mới."
 Nhân loại sắp đi vào một cuộc phục sinh chưa từng thấy từ xưa đến nay, mà có lẽ
 Tây phương sẽ cầm đầu phong trào phục hưng sau này.
 
 Phàm thì Âm cực tất Dương sinh, văn minh vật chất thế giới ngày nay âm khí đã
 đến thời kỳ cực độ, điểm Dương trong lòng Âm tăm tối ấy đang lần lần phát huy
 lực lượng tiên thiên một cách ngấm ngầm và mãnh liệt. Bằng chứng là Thiền học
-đang bắt đầu phát sinh mạnh mẽ ở các nước Âu Mỹ: một số khá đông các đại trí
+đang bắt đầu phát sinh mạnh mẽ ở các nước Âu Mỹ, một số khá đông các đại trí
 giả và thanh niên cấp tiến đã tỏ ra yêu chuộng Thiền học một cách say đắm thành
 thực. Có lẽ nhờ họ đã no nê chán mứa với nếp sống nhầy nhụa, hưởng thụ vật chất
 trong một thứ văn minh lý trí đến tột độ, và chính đó là nguyên do thuận lợi
 giúp họ nhận thấy rõ ràng hơn giá trị tinh thần của Đạo học Đông phương.
 
 H.M.Lassalle quả quyết rằng: "Thiền là món quà quý giá nhất mà Đông phương đem 
-tặng Tây phương". Sách vở về Lão, Trang, hay Thiền bên Âu Mỹ in ra bao nhiêu 
+tặng Tây phương." Sách vở về Lão, Trang, hay Thiền bên Âu Mỹ in ra bao nhiêu 
 bán hết bấy nhiêu. Quyển "The importance of living" của Lâm Ngữ Đường là sách 
 bán chạy nhất liên tiếp trong 11 tháng và đã được dịch ra 14 thứ tiếng. Đó là 
 quyển sách nói về nếp sống của nhóm người theo khuynh hướng tự nhiên của Trang 
