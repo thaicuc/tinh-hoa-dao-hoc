@@ -36,7 +36,7 @@ aux plus récentes hypothèses où vient de se hisser la science astronomique
 découvrant comme foyers de nombreux univers, des gouffres de Vide cosmique)
 
 Thật vậy, những lỗ hổng trên không trung là những nơi thu hút rất mạnh không khí
-xung quanh, cũng như những vùng nước xoáy mạnh dưới đáy bao giờ cũng có những
+xung quanh; Cũng như những vùng nước xoáy mạnh, dưới đáy bao giờ cũng có những
 vực thẳm. Bởi vậy Lão Tử mới nói: "oa tắc doanh" (窪則盈). Cái gì trống không sẽ
 được lấp đầy. Vì Tự Nhiên (tức Đạo Trời) rất cầu toàn và sợ khoảng trống.
 
