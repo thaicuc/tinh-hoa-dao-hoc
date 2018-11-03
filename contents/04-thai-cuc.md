@@ -48,7 +48,7 @@ SILENCE) Lão Tử gọi đó là "ngôn vô ngôn" 言無言.
 Trong Tiên thiên bát quái, Hư vô nằm ngay chỗ gặp gỡ của hai đường kinh vĩ làm
 thành chữ Thập của những quẻ Kiền-Khôn và Ly-Khảm. Tâm hư "trụ" ở ngay chính 
 giữa nơi "vô trụ" ấy. Đó cũng chính là chỗ mà Trang Tử gọi là "vô hà hữu chi 
-lương". Toàn thể Chu dịch chỉ nói đi nói lại có một điểm chính ấy mà thôi, với 
+hương". Toàn thể Chu dịch chỉ nói đi nói lại có một điểm chính ấy mà thôi, với 
 đủ mọi khía cạnh.
 
 Như đã nói, Dịch có nghĩa là Biến nhưng cũng có nghĩa là Bất biến, hay Biến 
