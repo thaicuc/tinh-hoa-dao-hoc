@@ -1,7 +1,7 @@
 # 6. Hoàn Hảo
 
 Lão Tử nói: "Bảo thủ Đạo, bất dục doanh." Người ôm ấp Đạo trong lòng, không bao 
-giờ mong muốn được đầy đủ! Là tại sao? Là vì "Oa tắc doanh." 漥則盈. Cái gì còn 
+giờ mong muốn được đầy đủ! Là tại sao? Là vì "oa tắc doanh" 漥則盈. Cái gì còn 
 thiếu sẽ được Tự nhiên bù vào cho bằng đầy; Là bởi vì Tự nhiên (tức tạo hóa) rất 
 cầu toàn và sợ khoảng trống (hay sự thiếu quân bình).
 
