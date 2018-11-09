@@ -1,7 +1,7 @@
 # 2. Đạo Trời
 
 Để cụ thể hóa Đạo (tức luật quân bình), Lão Tử đã dùng rất khéo hình ảnh cây
-cung được giương lên: “Thiên chi đạo, kỳ du trương cung dư; cao giả ức chi, hạ
+cung được giương lên: “Thiên chi đạo, kỳ du trương cung dư; Cao giả ức chi, hạ
 giả cử chi, hữu dư giả tổn chi, bất túc giả bổ chi. Thiên chi đạo: tổn hữu dư,
 bổ bất túc.” 天之道其猶張弓舆高者抑之下者舉之有餘者損之不足者補之天之道損有餘補不足. Đạo 
 Trời ư? Có khác nào cây cung? Khi kéo căng thì bị giằng lại, khi nhấn trùng 
@@ -24,23 +24,23 @@ thị minh, bản lai diện mục." 不思善不思惡正與麽時那箇是明�
 mình. Nhà Thiền gọi đó là "pháp môn bất nhị", nhà Dịch gọi là Thái cực, nhà Lão
 gọi là Đạo (Hư vô). Người đắc Đạo vì vậy được gọi là người đắc Trung. Và người
 đắc Trung là người không còn chọn lựa, không ưa thiện ghét ác, ưa phải ghét
-quấy, ưa vinh ghét nhục, ưa sướng ghét khổ, ưa sáng ghét tối... Các mật pháp của
-đạo giải thoát chính là ở điểm này.
+quấy, ưa vinh ghét nhục, ưa sướng ghét khổ, ưa sáng ghét tối... Các mật pháp 
+của đạo giải thoát chính là ở điểm này.
 
-Tăng Xán, tổ thứ 3 của nhà Thiền, trong Tín Tâm Minh, có ghi rất rõ ràng thế nào
-là Đạo giải thoát, cứu cánh của đời người theo Đạo: "Chí Đạo vô nan, duy hiềm
-giản trạch, đản mặc tắng ái, đỗng nhiên minh bạch." 至道無難 唯嫌揀擇 但莫繒爱
+Tăng Xán, tổ thứ 3 của nhà Thiền, trong Tín Tâm Minh, có ghi rất rõ ràng thế 
+nào là Đạo giải thoát, cứu cánh của đời người theo Đạo: "Chí Đạo vô nan, duy 
+hiềm giản trạch, đản mặc tắng ái, đỗng nhiên minh bạch." 至道無難 唯嫌揀擇 但莫繒爱
 洞然明白. Đạo, không có gì khó, chỉ đừng chọn lựa, quý hồ đừng ưa ghét, thì tự
 nhiên tâm sẽ sáng tỏ.
 
-Hư vô là nơi đã giải quyết được tất cả mọi tranh chấp mâu thuẫn trên đời. Maryse
-Choisy đã nói lên cái chân lý nhất nguyên này một cách thi vị như sau: "Toàn thể
-vũ trụ chỉ là một bãi chiến trường, trong đó trỗi lên một bản tình ca bất tận."
-(L’Univers tout entier n’est qu’un champ de bataille sur lequel monte un chan
-D’Amour eternel) Nói "vũ trụ là bãi chiến trường" là ám chỉ sự đối lập của Âm
-Dương; Nói "bản tình ca bất tận" là nói về sự hài hòa của Dịch; Biểu tượng cho
-hai lẽ Ghét và Thương, hoặc cùng không tồn tại, hoặc một khi đã xuất hiện thì
-luôn luôn đi đôi với nhau không thể tách rời; Không thể có cái này tồn tại mà 
-không có cái kia.
+Hư vô là nơi đã giải quyết được tất cả mọi tranh chấp mâu thuẫn trên đời. 
+Maryse Choisy đã nói lên cái chân lý nhất nguyên này một cách thi vị như sau: 
+"Toàn thể vũ trụ chỉ là một bãi chiến trường, trong đó trỗi lên một bản tình 
+ca bất tận." (L’Univers tout entier n’est qu’un champ de bataille sur lequel 
+monte un chan D’Amour eternel) Nói "vũ trụ là bãi chiến trường" là ám chỉ sự 
+đối lập của Âm Dương; Nói "bản tình ca bất tận" là nói về sự hài hòa của Dịch; 
+Biểu tượng cho hai lẽ Ghét và Thương, hoặc cùng không tồn tại, hoặc một khi đã 
+xuất hiện thì luôn luôn đi đôi với nhau không thể tách rời; Không thể có cái 
+này tồn tại mà không có cái kia.
 
 [3. Cứu Cánh &rarr;](https://github.com/thaicuc/tinh-hoa-dao-hoc/blob/master/contents/03-cuu-canh.md)
