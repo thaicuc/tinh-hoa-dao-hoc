@@ -23,11 +23,11 @@ Trang Tử ngày nay. Tôi muốn nói đến J.Krishnamurti. Với Krisnamurti,
 nhất nguyên của Đông phương đã bắt đầu phục sinh trong lòng Âu Mỹ, sau một thời
 bác loạn chưa từng thấy có trong lịch sử loài người.
 
-Chữ "bác" (剝) ở đây là chúng tôi nói đến quẻ Bác trong Kinh Dịch: năm hào Âm
-đang áp chế một hào Dương cô độc đã sắp tàn lụi và lui vào bóng tối, tượng trưng
-cho một giai cấp thức giả già nua với những tâm trí chứa đầy thành kiến. Nhưng
-sau quẻ Bác là quẻ Phục; Hào Dương ở quẻ Bác đã phục sinh nơi hào sơ ở quẻ Phục:
-"Con người cũ có chết đi, thì mới có thể được phục sinh trở thành con người mới."
+Chữ "bác" (剝) ở đây là chúng tôi nói đến quẻ Bác trong Kinh Dịch, 5 hào Âm đang 
+áp chế 1 hào Dương cô độc đã sắp tàn lụi và lui vào bóng tối, tượng trưng cho một 
+giai cấp thức giả già nua với những tâm trí chứa đầy thành kiến. Nhưng sau quẻ 
+Bác là quẻ Phục; Hào Dương ở quẻ Bác đã phục sinh nơi hào sơ ở quẻ Phục. "Con 
+người cũ có chết đi, thì mới có thể được phục sinh trở thành con người mới." 
 Nhân loại sắp đi vào một cuộc phục sinh chưa từng thấy từ xưa đến nay, mà có lẽ
 Tây phương sẽ cầm đầu phong trào phục hưng sau này.
 
@@ -42,9 +42,9 @@ giúp họ nhận thấy rõ ràng hơn giá trị tinh thần của Đạo họ
 
 H.M.Lassalle quả quyết rằng: "Thiền là món quà quý giá nhất mà Đông phương đem 
 tặng Tây phương." Sách vở về Lão, Trang, hay Thiền bên Âu Mỹ in ra bao nhiêu 
-bán hết bấy nhiêu. Quyển "The importance of living" của Lâm Ngữ Đường là sách 
+bán hết bấy nhiêu. Quyển "The Importance of Living" của Lâm Ngữ Đường là sách 
 bán chạy nhất liên tiếp trong 11 tháng và đã được dịch ra 14 thứ tiếng. Đó là 
-quyển sách nói về nếp sống của nhóm người theo khuynh hướng tự nhiên của Trang 
+quyển sách nói về nếp sống của nhóm người theo khuynh hướng tự nhiên của Trang, 
 Lão.
 
 Đông phương, trái lại, có lẽ vì quá bận rộn về những cuộc cách mạng liên miên về
@@ -73,7 +73,7 @@ phục sinh hay không, chính là nằm ở chỗ con người "cũ" phải ch�
 "cũ" ở đây, là con người nhị nguyên, con người kết tinh của quá khứ, con người
 của sách vở, của nhân vi tạo thành, con người của truyền thống lâu đời không
 biến cải, chính là con người "cũ" mà trong sách "Evangile Selon Saint Jean" gọi
-là "le vieil homme": "Kẻ nào không sống lại, không thể thấy được Nước của 
+là "le vieil homme"; "Kẻ nào không sống lại, không thể thấy được Nước của 
 Chúa." (En vérité, je te le dis: si un homme ne nait de nouveau, il ne peut 
 voir le Royaume de Dieu) "Nước của Chúa" ở đây, là ám chỉ Đạo.
 
