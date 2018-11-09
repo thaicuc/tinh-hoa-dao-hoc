@@ -5,7 +5,7 @@ mà thôi."
 
 Thật vậy, sự vật tự nó đâu có mâu thuẫn, vì mỗi một sự vật, sự việc đều là một 
 Thái cực, một tiềm lực chứa cả Âm lẫn Dương. Mâu thuẫn, có chăng là vì ta đến 
-với nó bằng một thái độ lựa chọn, ý niệm ưa ghét.
+với nó bằng một thái độ lựa chọn hay một ý niệm ưa ghét.
 
 Cuộc sống, thật sự tự nó cũng đâu có mâu thuẫn, vì mỗi lúc mỗi chứa đựng một
 thiên thu, mà nhà Thiền gọi là "nhất niệm vạn niên" (instant éternel). Vậy nên,
