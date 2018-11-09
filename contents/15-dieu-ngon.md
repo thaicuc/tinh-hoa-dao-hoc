@@ -125,8 +125,8 @@ clarté est résola.
 ***\_\_Krishnamurti***
 
 Sống trong hiện tại một cách đầy đủ, toàn diện, là sống với “hiện hữu”, không
-phê bình, lên án cũng không tìm cách biện minh. Tất cả mọi vấn đề, nhìn qua ánh
-sáng ấy đều sẽ được giải quyết.
+phê bình, lên án, và cũng không tìm cách biện minh. Tất cả mọi vấn đề, nhìn qua 
+ánh sáng ấy đều sẽ được giải quyết.
 
 ***
 
@@ -281,7 +281,7 @@ Nếu ta bảo, đâu có gì mới lạ, ấy là ta nhìn đời với những
 Nhất kiến bất khả tái kiến.  
 ***\_\_Thiền***
 
-Chỉ thấy được một lần, không bao giờ thấy lại được nữa.
+Chỉ thấy được một lần, không bao giờ được thấy lại nữa.
 
 ***
 
