@@ -17,7 +17,7 @@ bất tri Y". Là người, không thể không biết Y Đạo. Dịch là "th�
 "dụng". Cho nên, bàn đến Đạo học mà bỏ qua Đạo dưỡng sinh là điều thiếu sót.
 
 Lại nữa, nói đến Đạo học của phương Đông không thể không nói tới Thiền học Trung
-Hoa, vì nó là tinh hoa của Phật giáo Đại thừa và Trang Lão. Nói đến xưa, cũng
+Hoa, vì nó là tinh hoa của Phật giáo Đại thừa và Trang, Lão. Nói đến xưa, cũng
 không thể không bàn đến nay. Nói đến Trang Tử ngày xưa cũng không thể bỏ sót
 Trang Tử ngày nay. Tôi muốn nói đến J.Krishnamurti. Với Krisnamurti, một cái học
 nhất nguyên của Đông phương đã bắt đầu phục sinh trong lòng Âu Mỹ, sau một thời
