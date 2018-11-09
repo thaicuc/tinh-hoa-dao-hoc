@@ -4,20 +4,20 @@ Nói đến Hư Vô là nói đến phần tinh hoa căn bản của Đạo họ
 cái học Tam Huyền của Trung Hoa. Nếu không hiểu hoặc hiểu sai hai chữ Hư vô thì
 phải vứt cả sách vở về Đạo học của Đông phương luôn cả Huyền học của Tây phương.
 
-Người Tây phương, cũng như người Đông phương nhị nguyên học, luận về Hư vô đều
-cho là chuyện thanh đàm, không có ích gì đến nhân tâm thế đạo. Chủ trương "thanh
-tĩnh vô vi" của nhóm Lão Trang, "niết bàn diệu tâm" của nhà Phật... phần đông sở
-dĩ bị xem như một chủ nghĩa không tưởng, yếm thế, bi quan, tiêu cực, không thích
-ứng gì cả cho đời sống của con người theo văn minh ngày nay, là vì họ đã hiểu
-một cách quá hình thức và sai lầm 2 chữ Hư vô. Đối với họ, Hư vô là không có gì
-cả, cũng như Vô vi là không làm gì cả. Học Dịch, người ta chỉ biết Dịch là Biến
-mà không hiểu Dịch cũng là Bất Biến, và chính cái Bất Biến chỉ huy cái Biến, cái
-Tịnh là chủ của cái Động. Hay nói một cách khác, chính cái luật quân bình bất
-biến (hư cực tịnh đốc) ấy, chỉ huy tất cả mọi biến động trên cõi sắc tướng này.
-Thấy Tịnh mà cho là Tịnh, hoàn toàn Tịnh; cũng như thấy Động mà cho là Động,
-hoàn toàn Động; chỉ là thị kiến méo mó và vụn vặt phiến diện của nhị nguyên luận
-(vision déformée et fragmentaire), chứ không phải là thị kiến viên mãn của Hư vô
-của nhất nguyên lưỡng cực động.
+Người Tây phương, cũng như người Đông phương duy lý nhị nguyên, luận về Hư vô 
+đều cho là chuyện thanh đàm, không có ích gì đến nhân tâm thế đạo. Chủ trương 
+"thanh tĩnh vô vi" của nhóm Lão Trang, "niết bàn diệu tâm" của nhà Phật... phần 
+đông sở dĩ bị xem như một chủ nghĩa không tưởng, yếm thế, bi quan, tiêu cực, 
+không thích ứng gì cả cho đời sống của con người theo văn minh ngày nay, là vì 
+họ đã hiểu một cách quá hình thức và sai lầm 2 chữ Hư vô. Đối với họ, Hư vô là 
+không có gì cả, cũng như Vô vi là không làm gì cả. Học Dịch, người ta chỉ biết 
+Dịch là Biến mà không hiểu Dịch cũng là Bất Biến, và chính cái Bất Biến chỉ huy 
+cái Biến, cái Tịnh là chủ của cái Động. Hay nói một cách khác, chính cái luật 
+quân bình bất biến (hư cực tịnh đốc) ấy, chỉ huy tất cả mọi biến động trên cõi 
+sắc tướng này. Thấy Tịnh mà cho là Tịnh, hoàn toàn Tịnh; cũng như thấy Động mà 
+cho là Động, hoàn toàn Động; chỉ là thị kiến méo mó và vụn vặt phiến diện của 
+nhị nguyên luận (vision déformée et fragmentaire), chứ không phải là thị kiến 
+viên mãn của Hư vô của nhất nguyên lưỡng cực động.
 
 Bàn về công dụng của Hư vô, Lão Tử nói:
 
