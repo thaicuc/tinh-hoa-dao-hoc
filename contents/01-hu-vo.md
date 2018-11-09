@@ -46,8 +46,8 @@ trong lòng trời đất giống như lòng ống bễ của thợ rèn! Càng 
 mạnh. Cũng giống như sự hô hấp của ta, hít vô cho đầy, rồi thở ra cho hết.
 
 Cho nên, thực hiện được cái Tâm hư là tạo được cho mình một trung tâm động lực
-thu hút phi thường, có thể chứa đựng tất cả thiên hạ vào trong, bất kể thiện ác,
-thị phi, vinh nhục...
+thu hút phi thường, có thể chứa đựng cả thiên hạ vào trong, bất kể thiện ác, thị 
+phi, vinh nhục...
 
 Trang Tử nói: "Dưới Trời, nước không đâu nhiều hơn biển cả. Đó là nơi muôn sông
 đổ về không bao giờ thôi, mà không hề đầy; Rồi nước biển lại chảy vào sông rạch
