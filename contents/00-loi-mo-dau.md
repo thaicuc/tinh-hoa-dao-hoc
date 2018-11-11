@@ -13,7 +13,7 @@ bản. Bởi vậy ngày xưa người ta gọi Lão học là cái học của 
 Ngày nay, người ta đã giao Y học cho các vị y sĩ chuyên hành nghề chữa bệnh.
 Nhưng thưở xưa thì Y đạo không phải là một nghề, mà thực sự nó là cái Đạo dưỡng
 sinh, phòng bệnh hơn là trị bệnh. Lời xưa có nói: "Vi nhân tử giả, bất khả dĩ
-bất tri Y". Là người, không thể không biết Y Đạo. Dịch là "thể" mà Lão và Y là
+bất tri Y." Là người, không thể không biết Y Đạo. Dịch là "thể" mà Lão và Y là
 "dụng". Cho nên, bàn đến Đạo học mà bỏ qua Đạo dưỡng sinh là điều thiếu sót.
 
 Lại nữa, nói đến Đạo học của phương Đông không thể không nói tới Thiền học Trung
