@@ -9,7 +9,7 @@ giải Lão, dùng Lão giải Dịch một cách hết sức đắc lực. Nói
 thể nào không nói đến công dụng của nó trong cái đạo dưỡng sinh mà Y đạo là căn
 bản. Bởi vậy ngày xưa người ta gọi Lão học là cái học của Hoàng Lão. Mà Hoàng ở
 đây là Hoàng Đế Nội Kinh, sách căn bản của Y đạo Trung Hoa. Bởi vậy mới có câu:
-"Y đạo thông Tiên đạo". Người xưa không một ai học Dịch, học Lão mà không học Y.
+"Y đạo thông Tiên đạo." Người xưa không một ai học Dịch, học Lão mà không học Y.
 Ngày nay, người ta đã giao Y học cho các vị y sĩ chuyên hành nghề chữa bệnh.
 Nhưng thưở xưa thì Y đạo không phải là một nghề, mà thực sự nó là cái Đạo dưỡng
 sinh, phòng bệnh hơn là trị bệnh. Lời xưa có nói: "Vi nhân tử giả, bất khả dĩ
