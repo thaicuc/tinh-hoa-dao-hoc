@@ -88,7 +88,7 @@ giữa Tả và Hữu trong khi cả hai tương nhập và bổ túc lẫn nhau
 trí của sự sống. Trong thực tế, không có một vị lãnh đạo chân chính nào của nhân
 loại lại thuộc về phái Tả hay phái Hữu một cách tuyệt đối và ***không bao giờ 
 thay đổi***. Tùy nơi, tùy buổi, tùy hoàn cảnh, họ đứng khi bên Hữu, khi bên Tả 
-(mà thực sự họ không Tả, không Hữu)..."
+(mà thực sự họ không Tả, không Hữu) ..."
 
 "Lúc nào nền tảng xã hội sắp khuynh hẳn về phía Hữu, thì chúng tôi đứng về phía 
 Tả để giữ quân bình; Cũng như lúc nào nền tảng xã hội sắp bị khuynh hẳn về phía 
