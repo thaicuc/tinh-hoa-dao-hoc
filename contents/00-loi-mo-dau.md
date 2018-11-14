@@ -43,7 +43,7 @@ giúp họ nhận thấy rõ ràng hơn giá trị tinh thần của Đạo họ
 H.M.Lassalle quả quyết rằng: "Thiền là món quà quý giá nhất mà Đông phương đem 
 tặng Tây phương." Sách vở về Lão, Trang, hay Thiền, bên Âu Mỹ in ra bao nhiêu 
 bán hết bấy nhiêu. Quyển "The Importance of Living" của Lâm Ngữ Đường là sách 
-bán chạy nhất liên tiếp trong 11 tháng và đã được dịch ra 14 thứ tiếng. Đó là 
+bán chạy nhất trong 11 tháng liên tiếp và đã được dịch ra 14 thứ tiếng. Đó là 
 quyển sách nói về nếp sống của nhóm người theo khuynh hướng tự nhiên của Trang, 
 Lão.
 
